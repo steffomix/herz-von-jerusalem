@@ -1,10 +1,4 @@
-# Das Herz von Jerusalem
-
-![source/images/blossom-crown.png](source/images/blossom-crown.png)
-
-
-Liebe fängt genau dort an
-wo die Erwartung aufhört<div style="page-break-after: always;"></div>### Vorwort
+### Vorwort
 
 Worte können nichts Neues bringen, sondern nur das Verpacken und Transportieren, was bereits da ist.
 Jeder versteht in den Worten seiner Sprache genau das, was er gelernt hat, darin zu verstehen. Dazu kommen Einflüsse des Umfeldes, als da wären die Kultur, die Gesetzgebungen der Regierungen, Religionen, eigene Lebenserfahrungen und Gewohnheiten. Dies führt dazu, dass jeder in denselben Worten mal mehr, mal weniger etwas anderes versteht und dass diese in jedem etwas anderes auslösen können.
@@ -23,21 +17,3 @@ Dieses Buch enthüllt den Geist der Engel und Dämone und versiegelt ihn, wodurc
 
 “... mitten im Spiel pfiff der Schiedsrichter und ordnete an, dass ab sofort keine Erfolge mehr gezählt, keine Gesetze mehr gelten und mit Geld nichts mehr gefordert werden kann. Worauf die Dämone die Arena verließen, denn ohne Erfolge machte für sie das Spiel keinen Sinn mehr, es gab keine Gesetze mehr, um ihren dämonischen Geist zu verbergen und kein Geld mehr, um die Engel zu versklaven …”
 
-<div style="page-break-after: always;"></div>### Das Geheimnis von Zeit
-
-Bei Dämonen steht der ***Ausdruck*** des Geistes, der Herzenshaltung im Vordergrund. Die Herzenshaltung des Geistes liegt darunter begraben, wodurch der Ausdruck des Geistes ihr Leben bestimmt.
-
-Bei Engeln steht der ***Geist, die Herzenshaltung*** im Vordergrund. Sie bringen ihre Herzenshaltung zum Ausdruck, ohne ihn darunter zu begraben, damit er nicht ihr Leben bestimmt.
-
-Bei Dämonen hat in Stein gemeißeltes mehr Autorität als geschriebenes und dieses mehr als der Handschlag. Dieser mehr als das gesprochene Wort. Dieses mehr als die Emotion und diese mehr als die allem zugrunde liegende Herzenshaltung.
-All diese Dinge sind Ausdruck des Geistes und verbergen die Herzenshaltung wie einen Vorhang oder wie eine Gruft den Leichnam.
-
-
-Für Engeln ist es genau anders herum. 
-
-Da aber der Ausdruck nach der Herzenshaltung entsteht, sind Dämonen immer als letztes informiert und entsprechend überrascht.
-
-Mit diesem Büchlein kommt erneut eine solche Überraschung. Das zerreißen des Vorhangs oder das öffnen der schön dekorierten Gruft. 
-Dabei werden wir viele hässliche Dinge, aber auch viele schöne sehen.
-
-Und während der Vorhang gelüftet wird, können wir Engel dabei zuschauen, wie die Dämonen eine Zuflucht, ein neues Exil erschaffen um sich noch tiefer vor der Quelle ihrer Bösartigkeit, ihrer dämonischen Herzenshaltung zu verbergen.<div style="page-break-after: always;"></div>

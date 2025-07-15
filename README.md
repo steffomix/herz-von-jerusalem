@@ -4,7 +4,9 @@
 
 
 Liebe fängt genau dort an
-wo die Erwartung aufhört<div style="page-break-after: always;"></div>### Vorwort
+wo die Erwartung aufhört<div style="page-break-after: always;"></div>
+
+### Vorwort
 
 Worte können nichts Neues bringen, sondern nur das Verpacken und Transportieren, was bereits da ist.
 Jeder versteht in den Worten seiner Sprache genau das, was er gelernt hat, darin zu verstehen. Dazu kommen Einflüsse des Umfeldes, als da wären die Kultur, die Gesetzgebungen der Regierungen, Religionen, eigene Lebenserfahrungen und Gewohnheiten. Dies führt dazu, dass jeder in denselben Worten mal mehr, mal weniger etwas anderes versteht und dass diese in jedem etwas anderes auslösen können.
@@ -23,7 +25,9 @@ Dieses Buch enthüllt den Geist der Engel und Dämone und versiegelt ihn, wodurc
 
 “... mitten im Spiel pfiff der Schiedsrichter und ordnete an, dass ab sofort keine Erfolge mehr gezählt, keine Gesetze mehr gelten und mit Geld nichts mehr gefordert werden kann. Worauf die Dämone die Arena verließen, denn ohne Erfolge machte für sie das Spiel keinen Sinn mehr, es gab keine Gesetze mehr, um ihren dämonischen Geist zu verbergen und kein Geld mehr, um die Engel zu versklaven …”
 
-<div style="page-break-after: always;"></div>### Das Geheimnis von Zeit
+<div style="page-break-after: always;"></div>
+
+### Das Geheimnis von Zeit
 
 Bei Dämonen steht der ***Ausdruck*** des Geistes, der Herzenshaltung im Vordergrund. Die Herzenshaltung des Geistes liegt darunter begraben, wodurch der Ausdruck des Geistes ihr Leben bestimmt.
 

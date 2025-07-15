@@ -27,6 +27,10 @@ Dieses Buch enthüllt den Geist der Engel und Dämone und versiegelt ihn, wodurc
 
 <div style="page-break-after: always;"></div>
 
+
+
+
+
 ### Das Geheimnis von Zeit
 
 Bei Dämonen steht der ***Ausdruck*** des Geistes, der Herzenshaltung im Vordergrund. Die Herzenshaltung des Geistes liegt darunter begraben, wodurch der Ausdruck des Geistes ihr Leben bestimmt.

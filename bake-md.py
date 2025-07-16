@@ -12,7 +12,7 @@ class Page:
         file.close()
         
     def getText(self):
-        if self.text != '':
+        if self.text.strip() != '':
             return self.text + (pagebreak if self.addPagebreak else '')
         else:
             return ''
@@ -32,18 +32,24 @@ chapter3 = textSource + 'chapter-3/'
 
 
 imageSource = './source/images/'
-pagebreak = '<div style="page-break-after: always;"></div>'
+pagebreak = '\r\n\r\n<div style="page-break-after: always;"></div>\r\n\r\n'
 
 pageFiles =[
     # preface
-    Page(preface + 'preface-1.1', True),
-    Page(preface + 'preface-1.2', True),
-    Page(preface + 'preface-1.3', True),
-    Page(preface + 'preface-1.4', True),
-    Page(preface + 'preface-1.5', True),
+    Page(preface + 'preface-1-1', True),
+    Page(preface + 'preface-1-2', True),
+    Page(preface + 'preface-1-3', True),
+    Page(preface + 'preface-1-4', True),
+    Page(preface + 'preface-1-5', True),
+    Page(preface + 'preface-1-6', True),
     # chapter 1
     Page(chapter1 + 'chapter-1-preface-1', True),
-    Page(chapter1 + 'chapter-1.1', True),
+    Page(chapter1 + 'chapter-1-preface-2', True),
+    Page(chapter1 + 'chapter-1-preface-3', True),
+    Page(chapter1 + 'chapter-1-preface-4', True),
+    Page(chapter1 + 'chapter-1-preface-5', True),
+    Page(chapter1 + 'chapter-1-preface-6', True),
+    Page(chapter1 + 'chapter-1-1', True),
     Page(chapter1 + 'chapter-1-2', True),
     Page(chapter1 + 'chapter-1-3', True),
     Page(chapter1 + 'chapter-1-4', True),
@@ -53,7 +59,8 @@ pageFiles =[
     Page(chapter1 + 'chapter-1-epilogue-1', True),
     # chapter 2
     Page(chapter2 + 'chapter-2-preface-1', True),
-    Page(chapter2 + 'chapter-2.1', True),
+    Page(chapter2 + 'chapter-2-preface-2', True),
+    Page(chapter2 + 'chapter-2-1', True),
     Page(chapter2 + 'chapter-2-2', True),
     Page(chapter2 + 'chapter-2-3', True),
     Page(chapter2 + 'chapter-2-4', True),
@@ -63,7 +70,8 @@ pageFiles =[
     Page(chapter2 + 'chapter-2-epilogue-1', True),
     # chapter 3
     Page(chapter3 + 'chapter-3-preface-1', True),
-    Page(chapter3 + 'chapter-3.1', True),
+    Page(chapter3 + 'chapter-3-preface-2', True),
+    Page(chapter3 + 'chapter-3-1', True),
     Page(chapter3 + 'chapter-3-2', True),
     Page(chapter3 + 'chapter-3-3', True),
     Page(chapter3 + 'chapter-3-4', True),
@@ -72,11 +80,11 @@ pageFiles =[
     Page(chapter3 + 'chapter-3-7', True),
     Page(chapter3 + 'chapter-3-epilogue-1', True),
     # epilogue
-    Page(epilogue + 'epilogue-1.1', True),
-    Page(epilogue + 'epilogue-1.2', True),
-    Page(epilogue + 'epilogue-1.3', True),
-    Page(epilogue + 'epilogue-1.4', True),
-    Page(epilogue + 'epilogue-1.5', True),
+    Page(epilogue + 'epilogue-1-1', True),
+    Page(epilogue + 'epilogue-1-2', True),
+    Page(epilogue + 'epilogue-1-3', True),
+    Page(epilogue + 'epilogue-1-4', True),
+    Page(epilogue + 'epilogue-1-5', True),
 ]
 
 imageFiles = [

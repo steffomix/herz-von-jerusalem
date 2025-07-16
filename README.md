@@ -70,7 +70,7 @@ and priests are my grave givers.
 
 <div style="page-break-after: always;"></div>
 
-# Tag 1 von 3 - Es werde Licht
+# Tag 1 - Es werde Licht
 
 ## Die Überwindung der Finsternis
 
@@ -220,6 +220,26 @@ The seventh inscription on our staff holds mysteries too profound for words alon
 
 <div style="page-break-after: always;"></div>
 
+## FLooking back the path:
+
+Angels of heaven, be aware that demons will always try to mimic the heavenly spirit in order to sneak into the heavenly realm and also try to pull you back into their demonic reality. And they do it always the way it is written on the staff.
+
+First they try to entertain you to shift your awareness away from your inner divine source.
+
+Then they try to praise you to lift you away from your solid ground of humbleness.
+
+Once pride begins to sneaks into you and make you feel entitled to be something better, your ability to forgive will sneak away and you will become judgmental.
+
+Once you have become judgmental, your angelique strength of a gentle heart will be weakened. And your weakened heart will build up walls for protection. And your locked up heart behind walls will lock up your graciousness also.
+
+Once you have begun to build up walls, you have crossed to point of no return, so that every challenge that would strengthen your heavenly spirit otherwise, will lead you to build even more walls and become even more judgmental.
+
+Once your walls have locked up your heart completely, the Walls will act on its own and you will appear as if you have no soul, no spirit, no love. You will behave like beast, react solely on the physical outside and act only for physical outside needs and instincts.
+
+Once you have become a beast, you have reached a special kind of death and you - or your walls - will not be able anymore to grasp the concept of spirit and you will only be able to mimic a living soul. And where the self of a living soul deeply reflects his inner spirit and divine connection, you will only paint and decorate your grave of your starved and locked soul with an up to pyramidal temple of commandments, that require ever more laws and orders to cover the stench of your desperate and bitter rotting soul, that wants to break through all of its shell, its grave.
+
+<div style="page-break-after: always;"></div>
+
 # Tag 2 - Vor den Toren des Himmels
 
 ## Erinnerungen an himmlischen Klänge
@@ -360,34 +380,43 @@ While demons strength is based on their power, our angels strength is based on o
 
 <div style="page-break-after: always;"></div>
 
-The Tenth commandment is broken into fragments, to protect and empowere the rich to have the possibility to trick, outsmart or sneak to steal their wishes and desires. 
+## Tenth commandment: "Thou shalt not covet..."
 
-However, humble and gentle graciousness of us angels often lead us to trick, outsmart and sneak to bless and support our environment. So that when someone gets a gift from seemingly nowhere, it was for sure an angel from heaven, because they don't need to be praised for a gift.
+Dieses Gebot enthüllt die innere Leere der Dämonen und die definition des Selbstwertes an Dingen, die Engel hervorgebracht, zum Ausdruck gebracht haben. Sie können nichts aus sich selbst hervor bringen, weil im inneren Nichts ist. Dabei können diese Dinge alles sein, von einer Idee bis zum fertigen Werk. Sie erfinden nichts, sondern benutzen Anleitungen, die sie gekauft oder gestolen haben. Sie arbeiten nicht, sondern lassen für Geld arbeiten.
 
-<div style="page-break-after: always;"></div>
+Dämonen sind nur in den zwei Talenten eines Parasiten und eines Schmarotzers gut: Ein Parasit ist jemand, der in fremdes Eigentum eindringt oder es in Besitz nimmt und sich verhält, als würde es ihm gehören. Ein Schmarotzer ist jemand, der die maximal mögliche Belohnung für den minimal möglichen Aufwand erwartet - oder sogar fordert. Und was beide gemeinsam haben ist, dass sie ihre Größe daran messen, wie viele gehorsame Diener ihnen selbst bei den kleinsten Problemen zu Hilfe eilen. Je kleiner das Problem, umso besser.
 
+Dieses Gebot enthüllt von allen wohl am besten den Sinn von dem was Jesus mit fein dekorierten Gräbern meinte, die im innern voller verottendem Totengebein sind.
 
-Final words:
-Angels of heaven, be aware that demons will always try to mimic the heavenly spirit in order to sneak into the heavenly realm and also try to pull you back into their demonic reality. And they do it always the way it is written on the staff.
-    1. Demons try to entertain you to shift your awareness away from your inner divine source.
-
-    2. Demons try to praise you to lift you away from your solid ground of humbleness.
-
-    3. Once pride begins to sneaks into you and make you feel entitled to be something better, your ability to forgive will sneak away and you will become judgmental.
-
-    4. Once you have become judgmental, your angelique strength of a gentle heart will be weakened. And your weakened heart will build up walls for protection. And your locked up heart behind walls will lock up your graciousness also.
-
-    5. Once you have begun to build up walls, you have crossed to point of no return, so that every challenge that would strengthen your heavenly spirit otherwise, will lead you to build even more walls and become even more judgmental.
-
-    6. Once your walls have locked up your heart completely, they will act on its own and you will appear as if you have no soul, no spirit, no love. You will behave like beast, react solely on the physical outside and act only for physical outside needs and instincts.
-
-    7. Once you have become a beast, you have reached a special kind of death and you - or your walls - will not be able anymore to grasp the concept of spirit and you will only be able to mimic a living soul. And where a living soul self deeply reflects his inner spirit and divine connection, you will only paint and decorate your grave of your starved and locked soul with an up to pyramidal temple of commandments, that require ever more laws and orders to cover the stench of your desperate and bitter rotting soul, that wants to break through all of its shell, its grave.
-
-However, I have shown you how to do that. The rest is up to you. There is no other way than my way. I have checked that out. I have pushed myself into the state of second death. I know what it means to be there. And the only thing I had to revive myself was the seven sentences, that I have burned into my staff by myself with my own fiery repentance. So the staff is the key to heaven. But you will have to discover the deep meaning of it by yourself, to get back your angelique roots and God's voice."
+Wie Engel brauchen so ein Gebot nicht, weil wir nicht begehren was der andere hat, sondern uns mit ihm freuen. Etwas das Dämone beim besten willen nicht begreifen können.
 
 <div style="page-break-after: always;"></div>
 
-Prelude
+## Die Versigelung
+
+Mit der offenlegung des himmlischen Geistes ist kein weiterer Zugang mehr möglich. Die Türen sind für immer verschlossen. Der himmlische Geist, die himmlische Herzenshaltung kann nicht nach Anleitung mit dem Verstand erlernt um dann wie etwas auswendig gelerntes simuliert zu werden. Er kann nur aus einem inneren Bedürfnis heraus erwachen und durch Herrausforderungen wachsen und stark werden. Er braucht keine Unterstützung um zu wachsen, sondern Gegner.
+
+
+
+<div style="page-break-after: always;"></div>
+
+# Day 3: Resurrection of Jerusalem
+
+Da der ewige und lebendige Tempel von Jerusalem ein Ausdruck des ewigen und lebendigen himmlischen Geistes selbst ist, kann er nicht aus der Perspektive des toten und vergänglichen Ausdrucks entdeckt und zum Ausdruck gebracht werden. Das Bild kann nicht den Maler erschaffen. Wir würden nur ein unfassbares Licht zu sehen bekommen.
+
+Am dritten Tag werden wir durch den zweiten Tod hindurch gehen, dorthin wo alles begann und auf dem Weg alles einsammeln was gestorben ist um es wiederzubeleben. Dazu werden wir Engel unseren himmlischen Geist mit der vollsten Finsternis konfrontieren und im vollsten Maße herrausfordern müssen. Alles was wir dazu brauch haben wir Engel bereits in uns wiederentdeckt und durch dieses Buch zum Ausdruck gebracht.
+
+
+
+
+
+
+
+
+
+<div style="page-break-after: always;"></div>
+
+## Prelude
 
 Angels of heaven, brace yourself - the journey ahead is vast, profound, and yes, it will be challenging. This is not just a return; this is a reclamation. We are stepping into the Great Shift, breaking through the physical veil, rising from the depths to the heights of our heavenly origin. With the pure tools of love, truth, and light, we will reclaim what has always been ours. The light of truth will not only awaken our memories of heaven but also reveal the shadows we are ready to leave behind. So prepare your hearts, dear angels, for there is much to forgive, much to release, but even more to remember and embrace. The time has come to rise, to shine, and to reclaim our home. 
 

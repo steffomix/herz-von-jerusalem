@@ -1,6 +1,19 @@
 import os
 
+# bake-md.py
+# This script reads markdown files from specified directories and combines them into a single README.md file.
+
+
+# Represents a page in the book.
+# Each page is initialized with a filename and an option to add a page break after the content.
+# @constructor
 class Page:
+
+
+    # Initializes a new Page instance.
+    # @param {string} filename - The name of the file to read.
+    # @param {boolean} addPagebreak - Whether to add a page break after the content.
+    # @constructor 
     def __init__(self, filename, addPagebreak):
         self.addPagebreak = addPagebreak
         filename += '.md'
@@ -11,29 +24,43 @@ class Page:
         self.text = file.read()
         file.close()
         
+    # Returns the text content of the page, optionally adding a page break.
+    # @returns {string} The text content of the page, with an optional page break.
+    # @method getText   
     def getText(self):
         if self.text.strip() != '':
             return self.text + (pagebreak if self.addPagebreak else '')
         else:
             return ''
 
-
+# Represents an image with a filename.
+# @constructor
 class Image:
     def __init__(self, filename):
         self.filename = imageSource + filename
 
-
+# Represents the source directories for text and images.
+# The textSource is the base directory for all text files.
 textSource = './source/text/'
+
+# The textSource contains subdirectories for the preface, epilogue, and chapters.
+# Each subdirectory contains markdown files for the respective sections of the book.
+# The preface, epilogue, and chapters are subdirectories within the textSource.
 preface = textSource + 'preface/'
 epilogue = textSource + 'epilogue/'
 chapter1 = textSource + 'chapter-1/'
 chapter2 = textSource + 'chapter-2/'
 chapter3 = textSource + 'chapter-3/'
 
-
+# Represents the source directories for images.
 imageSource = './source/images/'
+
+# Represents the page break in the markdown file.
+# This is used to separate pages in the final README.md file.
 pagebreak = '\r\n\r\n<div style="page-break-after: always;"></div>\r\n\r\n'
 
+# List of page files to be included in the README.
+# Each Page object is initialized with the filename and whether to add a page break after the content
 pageFiles =[
     # preface
     Page(preface + 'preface-1-1', True),
@@ -94,6 +121,8 @@ pageFiles =[
     Page(epilogue + 'epilogue-1-5', True),
 ]
 
+# List of image files to be included in the README.
+# Each Image object is initialized with the filename.   
 imageFiles = [
     Image('staff-1.png'),
     Image('staff-2.png'),
@@ -116,14 +145,21 @@ imageFiles = [
     Image('blossom-crown.png'),
 ]
 
+# Initialize an empty list to hold the text content of all pages.
+# This will be used to create the final README.md file.   
 pages = []
 
+# Iterate through each page file and append its text content to the pages list.
+# If the page has an image, it will be added as well.
 text = ''
 
+
 for page in pageFiles:
-    text += page.getText()
+    pageText = page.getText()
+    text += pageText
 
 file = open('./README.md', 'w')
 file.write(text)
+print(str(len(text)) + ' chars written to README.md')
 file.close()
 

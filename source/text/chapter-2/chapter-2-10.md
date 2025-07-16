@@ -1,0 +1,3 @@
+The Tenth commandment is broken into fragments, to protect and empowere the rich to have the possibility to trick, outsmart or sneak to steal their wishes and desires. 
+
+However, humble and gentle graciousness of us angels often lead us to trick, outsmart and sneak to bless and support our environment. So that when someone gets a gift from seemingly nowhere, it was for sure an angel from heaven, because they don't need to be praised for a gift.

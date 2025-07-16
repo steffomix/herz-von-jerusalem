@@ -1,0 +1,3 @@
+## Third commandment: "Thou shalt not take the name of the Lord thy God in vain".
+
+This is a demonic masterpiece. It forbids to abuse the spirit of God like I have already told you. But the entire commandments are an abuse of it in itself. The masterpiece in this part is, that if you turn something exactly upside down together with everything that belongs to it, it all looks right and solid again and it is impossible to find any flaws in it.

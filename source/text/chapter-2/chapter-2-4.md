@@ -1,0 +1,3 @@
+## Fourth commandment: "Thou shalt not take the name of the Lord thy God in vain".
+
+Demons have no understanding of the concept of a spirit, so that they simply declare a lazy day, to worship their inner emptiness. We angels on the other hand stay away from activities from time to time, to cleanse our inner connection to our divine source from all obstacles like taking a regular physical bath for cleaning. So that we do not follow the fears and predictions of our mind that much. The mind that surrounds us is like a reality translation suite. But during this cleaning process we break through the mind shell and reconnect to our true divine identity and realign with its spirit.

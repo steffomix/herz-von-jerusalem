@@ -1,0 +1,3 @@
+## Second commandment: "Thou shalt not make unto thee any graven image".
+
+This commandment goes even further than nonsense, because it declares the total condemnation and ban to express the heavenly spirit. But that's what we angels are all about. We are creative and love to express the beauty of our spirit in all possible ways. But we would never worship our creations and put them before and between us and our God. because then they would become an obstacle and separate us from our divine source.

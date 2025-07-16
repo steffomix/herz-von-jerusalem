@@ -1,0 +1,3 @@
+## Seventh commandment: "Thou shalt not commit adultery".
+
+Angels of heaven live in a deeply connected marriage with the heavenly spirit of God, which completely excludes the possibility of adultery. So in order to be able to commit adultery, the heavenly spirit has to be rejected first. Once the marriage with the first love of the heavenly spirit is buried alive under a pile of laws and orders, the ability of a healthy and deeply connected relationship is destroyed, a marriage with a replacement of the first love has to be kept by force with a law. That's how demons decorate their graves.

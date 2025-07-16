@@ -4,15 +4,10 @@
 
 
 Liebe fängt genau dort an
-<<<<<<< HEAD
-wo die Erwartung aufhört<div style="page-break-after: always;"></div>
-
-=======
 wo die Erwartung aufhört
 
 <div style="page-break-after: always;"></div>
 
->>>>>>> f18f012 (Update Parts)
 ### Vorwort
 
 Worte können nichts Neues bringen, sondern nur das Verpacken und Transportieren, was bereits da ist.
@@ -31,19 +26,10 @@ Dieses Buch enthüllt den Geist der Engel und Dämone und versiegelt ihn, wodurc
 
 
 
-<<<<<<< HEAD
-<div style="page-break-after: always;"></div>
-
-
-
-
-
-=======
 
 
 <div style="page-break-after: always;"></div>
 
->>>>>>> f18f012 (Update Parts)
 ### Das Geheimnis von Zeit
 
 Bei Dämonen steht der ***Ausdruck*** des Geistes, der Herzenshaltung im Vordergrund. Die Herzenshaltung des Geistes liegt darunter begraben, wodurch der Ausdruck des Geistes ihr Leben bestimmt.
@@ -59,9 +45,6 @@ Da aber der Ausdruck nach und aus der Herzenshaltung entsteht entsteht, sind Dä
 
 Mit diesem Büchlein kommt erneut eine solche Überraschung. Das zerreißen des Vorhangs oder das öffnen der schön dekorierten Gruft der Dämonen. Und während der Vorhang gelüftet wird, können wir Engel dabei zuschauen, wie die Dämonen eine Zuflucht, ein neues Exil erschaffen um sich noch tiefer vor der Quelle ihrer Bösartigkeit, ihrer dämonischen Herzenshaltung zu verbergen.
 
-<<<<<<< HEAD
-Und während der Vorhang gelüftet wird, können wir Engel dabei zuschauen, wie die Dämonen eine Zuflucht, ein neues Exil erschaffen um sich noch tiefer vor der Quelle ihrer Bösartigkeit, ihrer dämonischen Herzenshaltung zu verbergen.<div style="page-break-after: always;"></div>
-=======
 Das Licht hat sich bis in in die tiefsten und finstersten Verstecke der Dämonen geschlichen, um nun zu erstrahlen, alles auszuräuchern, was nicht vor dem Licht des Himmlischen Geistes der Engel bestehen kann. Dabei werden wir viele hässliche Dinge sehen, aber auch viele schöne Dinge wiedersehen.
 
 <div style="page-break-after: always;"></div>
@@ -100,7 +83,7 @@ Angels of heaven, remember the place where every heart beats in harmony with the
 
 <div style="page-break-after: always;"></div>
 
-The fall of the angels
+## The fall of the angels
 
 Long ago, the angels were born as unique shards of God, the One. Created to express the Divine Spirit in their own beautiful ways, their combined expressions became what we know as Heaven. Heaven was the radiant reflection of God’s heavenly Spirit – a place of overwhelming beauty and harmony.  But over time, something shifted. The angels began to fall in love with their own creations, their own expressions. This love, though pure in its essence, became a distraction. It was as if they were cheating on their first love – the Divine Spirit itself. They consumed their creations, becoming one with them, and in doing so, they experienced something entirely new: pride. Pride was a sensation they had never known before, a sensation God had withheld from them for a reason they would soon discover – the hard way. Intoxicated by this new feeling, they began to curse God for keeping it from them. Their sense of self-worth shifted from their inner divine spirit to their outer creations. Their works became more important to them than their connection to the Source. But pride, as they would learn, is a fleeting sensation. As their heavenly bliss faded, they were left feeling empty and miserable. Yet, instead of admitting their error and letting go of their toxic desires, they clung to their pride even tighter. They began to seduce other angels, drawing them into their new reality, not just to follow their ways but to serve and praise them. They sought honor, recognition, and goods that would feed their addiction to pride, distracting them from the inner void that now consumed them. These seductive, once-heavenly beings became the first demons – empty, pride-addicted, and wicked remnants of what were once brilliant sparks of God’s beautiful Spirit. 
 
@@ -126,7 +109,191 @@ Angels of heaven, brace yourself - the journey ahead is vast, profound, and yes,
 
 <div style="page-break-after: always;"></div>
 
-Prelude
+## First Bowl: Serving Attitude
+
+ Let us begin with the first of the seven bowls – the fundamental intent. This is about making a choice: Will we embrace a humble attitude of service, or will we seek to dominate and rule? In an environment of hardship, where we know nothing else and react solely to what surrounds us, dominance may seem like the obvious choice. It promises control, power, and survival. But if our goal is to discover and grow in love, dominance is the least useful path. It builds walls, not bridges. Humble service, on the other hand, is far more challenging in such an environment. It requires us to question our reality and seek something greater, something deeper than the physical world we see. It asks us to look beyond the immediate struggle and trust in a higher purpose. As long as we do not question our physical reality, we are like a chicken inside an egg – confined, limited, and unaware of the vast world beyond. This is why the tip of our staff must be sharp, like an egg tooth. It represents the piercing question: “Is serving better than ruling?”. This question is the first step on our journey back to Heaven, and it demands a clear and resounding “yes*”. Without this commitment, we cannot begin to break free from the shell of our limited existence. Yet, even with this intent, history shows how easily the path of service can be twisted into one of domination. The heavenly recommendations given through Moses were rooted in service, but the demons of that time distorted them so quickly into harsh, ruling commandments that they barely touched the ground before being corrupted. This is what happens when we try to pour heavenly water into a mind filled with demonic waste – the result is nothing but stinking sewage. Therefore, to continue our journey to Heaven, we must first cleanse our minds. Better yet, we must empty them entirely. Do not attempt to mix the heavenly Spirit with old, demonic ways – it will only make things worse. Only with a pure and open heart can we truly receive the light of Heaven and walk the path of service that leads us home. 
+
+<div style="page-break-after: always;"></div>
+
+## Second Bowl: Humbleness
+
+Onward to the second bowl of groundedness through humbleness. On the staff, it's the second verse, or the first verse on the second day, and it reads: “Always try to be the least.”. On our flute, it's the first hole for the deepest note. This staff is here like a sword that cuts away all pride and honor. It's like a slag separator, separating the worthless from the valuable. Whoever wants to walk the path to heaven must be ready to lay down his pride. For the more the creativity and creative power of the heavenly spirit is expressed in and through us, the more humbleness is needed as a counterbalance. Humbleness is the rock, the solid ground upon which heaven is built and its angels are correspondingly steadfastly humble. For demons, on the other hand, who have absorbed the seductive greatness of heaven and are, in the truest sense, intertwined with it, humbleness is like a downright deadly, bitter, absolutely despicable poison. Therefore, it is easier for a camel to go through the eye of a needle than for a proud honorable demon to enter heaven. And nothing fills an honorable demon with more pride and makes him richer and more powerful than ruling over dutiful, humble angels. 
+
+<div style="page-break-after: always;"></div>
+
+## Third bowl: forgiveness
+
+Forgiveness is like the light for us angels. It helps us see, clears the way, and allows the heavenly spirit to unfold its beauty. On our flute, it is the second hole. On our staff, it is the third sentence, where the text no longer moves straight up but begins to twist like a fiery snake wrapping around a branch. And it sounds: “Always try to forgive where you want to judge.”. 
+
+Here our staff becomes like a drill, to finally break out of the demonic reality, leaving a hole behind, a bottomless pit where angels sacrifice everything that has become toxic to them. Our staff also becomes like a torch, standing in flames, giving light to see and at the same time destroying everything that does not belong to heaven.
+
+When we angels express our heavenly spirit through creations, actions, and plays, these very things can turn into obstacles. They numb our empathy and prevent us from experiencing oneness. Forgiveness removes these obstacles. It is like throwing waste into a bottomless sewer - pushing the flush of some tears and letting it disappear into the demonic realm where the heavenly spirit is absent. That's why we angels better not stick to what is meant to be sacrificed.
+
+Forgiveness is light because it allows us to see. We can only notice what we allow to reach and touch us. It purifies, refines, and makes space for the heavenly spirit to reveal its beauty. In this way, forgiveness also is the angel's way to sacrifice.
+If we angels want to see into the demonic reality and reveal their true nature, we must sacrifice ourselves and forgive everything that happens to us. This is the true reason behind Jesus' sacrifice. But demons will stop at nothing to twist and distort the truth for their own purposes.
+Demons cannot let go, do not forgive. Therefore they do not see, have no light and no empathy. Their identity is tied to their creations, their possessions, and their past experiences. To forgive, for them, would mean to cease to exist. So, they remain trapped in the very filth that angels have already sacrificed. Once fallen into the demonic sewage, which distorts reality, escape becomes nearly impossible.
+
+Like pigs wallowing in mud, demons cling to their suffering. Lacking the heavenly spirit, they construct a reality of laws and punishments, trying to mimic a divine order. But in truth, they are nothing more than beautifully decorated graves, rotting from the inside out. And as their decay seeps through their polished facades, their laws grow ever more detailed, ever more rigid. In the end, all their rules and punishments reveal their own wretchedness.
+
+<div style="page-break-after: always;"></div>
+
+## Fourth bowl: Graciousness
+
+With the fourth bowl, our staff transforms into a flower, and we find the words: "Always try to be gracious, even where you want to close your heart.".
+
+On our flute, this corresponds to the third hole - a note that marks the transition from recovering our heavenly spirit to expressing it.  
+
+Here, we angels, who embody and express our heavenly spirit, collide with demons who mimic it. Demons seek recognition for their superficial good deeds, and those who receive their blessings often feel used - reduced to mere objects that allow the demons to shine and pride themselves on being "good."  
+
+We angels, in our humility, seek no honor or recognition. We do not even wish to be noticed. For us, the greatest joy and honor is to let God’s heavenly spirit flow through us.  
+
+Yet, this angelic flower state is fragile. Many of us are consumed, trampled, or trapped in mental or emotional prisons. Some are buried beneath the waste of religious conformity, while others become ornaments on the graves of their demonic commanders - decorations for the evil systems that destroyed them, only to later be displayed as symbols of false holiness.
+
+To open ourselves and reveal our heavenly beauty in a demonic environment is profoundly challenging. Many angels literally disappear, their journeys ending here. On our flute, this is symbolized by the gap between the third and fourth holes - a dark time of torment, suffering, and abuse. Only the strongest, toughest, and those with extraordinary healing abilities can endure this and move forward to face even greater challenges.  
+
+<div style="page-break-after: always;"></div>
+
+## Fifth bowl: Love anyway
+
+Let us now move to the fifth bowl – the bowl of the brave mountaineer. Here, our staff transforms into a hiking staff, and we find the words: “Always try to love where no love is.”. This reminds us that when life becomes easy, we are likely on the wrong path, descending rather than ascending.  
+
+On our flute, this is represented by the fourth hole - a tone that opens a new perspective. Suddenly, everything that once sought to bring us down, to harm us, becomes an opportunity to strengthen our heavenly Spirit and grow in love.  
+
+A demon enslaves us? Thank you - we become even more servant-hearted.  
+A demon honors us? Thank you - we learn to remain humble.  
+A demon mortifies us? Thank you - we are freed from pride.  
+A demon hurts us? Thank you - we learn to forgive even more deeply.  
+A demon traps us in a toxic relationship? Thank you - we connect more profoundly with our inner source of healing.  
+
+In this way, every act of demonic abuse only amplifies the light we emit - the true light that reveals the nature of both angels and demons. This is the light that demons lack and can only reflect. It is the light that exposes why demons avoid dirt and cling to their polished, shiny exteriors. 
+
+The disgusting mood and filth demons throw at us, may dim our angelic light temporarily, but it also increases the heat of our love until all the dirt returns as molten lava of forced repentance into the hide of the demon's dark existence.  
+
+With every difficult step we take up the mountain of God’s heavenly Spirit, we experience more of His true glory. It flows through us like a river of pure bliss and tranquility, filling us with a sense of divine connection and purpose.  
+
+But the higher we climb, the brighter our light and the hotter our love becomes. As Heaven’s beauty is revealed in its fullness, so too are the depths of darkness in the demons’ reality. The contrast can be overwhelming – breathtaking revelations often demand a pause, a moment of rest to digest the vastness of God’s kingdom and the freedom we have to either accept or reject His Spirit, along with the life and challenges it brings.
+
+<div style="page-break-after: always;"></div>
+
+## Sixth Bowl - holy heavenly spirit
+
+With the fifth and final hole of our flute, we not only remember the power of love and what it means to truly love but also realize that love is our most valuable treasure, surpassing even the most brilliant intellect.  
+
+Here, our staff transforms into a fiery sword of power, its mystic symbols glowing with ancient wisdom - a weapon grasped only by those who have faced and defeated the monstrous horrors of the abyss.  
+
+The sixth bowl carries the message: “Always let love be your most precious treasure.”.  
+
+Love exists outside of time, free from the burdens of past judgments and future expectations. While our mind lingers in uncertainty, love moves with confidence and clarity.  
+
+Heavenly love is a one-pot stew of selfless service, rock-bottom humbleness, unconditional forgiveness, and gratitude without expectations. With its service, love moves through the demons' dominion like vital oil in a gearbox. With humbleness, it softens their aggressive raids. With forgiveness, it becomes invulnerable. With graciousness, it becomes inexhaustible. And because the only reason for love is love itself, it becomes an invincible warrior that stops for nothing.  
+
+Just as every soup has its own aroma, reflecting its ingredients, so too do angels and demons have their own “smell” “ an intensely powerful essence that reveals their nature. For angels, this essence is a radiant, overwhelming fragrance of purity and love. For demons, it is a suffocating stench of decay and pride. With the legendary power of love, we angels conquer the demons' dominion of the mind and tame it into a tool to express our heavenly Spirit. And the first task for this tamed tool is this. Silence yourself, stand firm, and listen deeply!:  
+
+Demons, too, stop at nothing to claim the angels' most precious treasures. They repackaged the angels' spiritual essence - the “smell” that reflects their humble servant tendency to act - into something called “karma”, binding souls to an endless cycle of guilt. To deepen the deception, they painted the demonic abuse as a divine trial, a sacred duty to serve them for a redemption that would never come.  
+
+We all face trouble at times and need support to move forward. But while angels seek only enough support to stand on their own again, demons grow dependent, demanding endless assistance. 
+Demons are good in only the two talents of a parasite and a freeloader: A parasite is someone who enters or takes possession of someone else's property and behaves as if it belongs to them. A freeloader is someone who expects - or even demands - the maximum possible reward for the minimal possible effort. And what both have in common is that they define their greatness by how many obedient servants rush to their aid, even for the smallest of problems.
+This abuse of the heavenly spirit makes demons even worse and we angels have to face the sad truth, that we can not help and need to turn our back on them.
+
+<div style="page-break-after: always;"></div>
+
+Seventh Bowl - God's voice
+
+In the seventh and final bowl, we remember the beauty and purity of our heavenly spirit - preserved and kept holy through all hardships endured on our ascent to the mountain's peak. Now, with all holes of our flute open and free, we angels can use this sacred instrument to express and discover the profound depths of our divine inner connection.
+
+Playing this flute becomes a meditation of self-reflection, realigning us with our heavenly essence. As we sound each note, we retrace our path to heaven's summit, remembering our angelic roots. Just as flowers draw nourishment from their roots, this path to the peak represents the very root of our celestial origin - our heavenly family. When we play with true devotion to our divine connection, we become conduits for God's true voice, the heavenly spirit flowing through us.
+
+We angels are living expressions of God's spirit. Yet the moment we use this instrument to impress others or manipulate our environment, we step onto the demonic descent to hell. Thus the inscription running along our flute reminds us: “Always protect and connect your humble loving heart with forgiveness.”
+
+The sensitivity and power of this flute's music must never be underestimated.
+
+On the demonic path, music becomes a weapon - its power abused to push and manipulate others into foreign states of being. Success in such manipulation breeds the toxic sensations of superiority and pride. Thus emerge deceivers, those enchanted by deception, and those who follow illusions before the heavenly spirit. This abuse of music marks the beginning of demonic control.
+
+The true turning point from angel to demon comes when we seek to impress with our expressions, or become more enthralled by external displays than our inner divine light. In its beautiful simplicity, the flute serves as a divine mirror - revealing whether we've strayed into darkness.
+
+When we feel unconfident in our playing or doubt our skill, these are demonic whispers trying to suppress our need for divine expression. 
+
+Demons have fallen prey to their own impressive but hollow creations, burying their divine connection beneath layers of artifice. Without the anchor of heavenly spirit, they desperately cling to music and other impressive displays as artificial anchors for their unstable existence.
+
+The seventh inscription on our staff holds mysteries too profound for words alone. It bears the true and unutterable name of God, represented as seven mirrors encircling the staff. It proclaims: “Seek God in these seven mirrors to love, to love, and again to love, more than anything in the world, more than anything measurable and more than your live.”. Here, “the world” means all expressions; “measurable” warns against comparison; and “live” signifies our worldly identity.
+
+
+<div style="page-break-after: always;"></div>
+
+# Tag 2 - Vor den Toren des Himmels
+
+## Erinnerungen an himmlischen Klänge
+
+Heaven whispers without commandments, sings without laws. To enter its embrace, we must lay down the sword of judgment - for only those who cling to condemnation prove they have not yet heard its melody.  
+
+Once, the sacred staff bore seven seals - seven bowls of the heavenly spirit, overfilled with grace. But the demons, fearing such boundless freedom, hammered them into chains: *"Thou shalt not,"* they thundered, twisting radiance into rule, love into law. Where heaven offered a bouquet of love and understanding, they planted thorns of expectations and punishments, and the staff—meant to guide—became in their grip a spear of torment.  
+
+Yet the flute remains. It is the voice of God within us, the breath of the divine singing through our hearts. No decree compels its song; it plays because it *longs* to. This is the mark of heaven’s children: they need no whip to make them kind, no threat to make them true. They dance because the music moves them; they love because love is their nature.  
+
+Now, at the summit of remembrance, we reclaim what was stolen. The staff’s seven seals shall shine again—not as edicts, but as invitations:  
+1. To live without fear of wrath.  
+2. To love without demand of return.  
+3. To create without the curse of "wrong."  
+4. To see beyond the illusion of sin.  
+5. To trust the voice within, over the law without.  
+6. To know punishment distorts what mercy mends.  
+7. To remember heaven’s only rule is joy.  
+
+And the flute’s song rises, dissolving the old curses. The Ten Commandments, those heavy horns goring the heart of grace, now soften into *ten petals*—revealing, not restraining:  
+- Not "Thou shalt not,"* but *"Behold, you are free."
+- Not "Bow or burn,"* but *"Lift your head; you are seen."
+- Not "This is the path,"* but *"All paths sing of Me."
+
+For the staff and the flute are one: divine wisdom and divine voice. Wielded in fear, they become weapons; held in love, they become life. So let the demons clutch their spear—we will raise the flute. Let them carve commandments; we will breathe the melody.  
+
+And the heavens will echo, not with thunder, but with laughter—the orgasmic insanity of a love too wild for walls.  
+
+<div style="page-break-after: always;"></div>
+
+
+
+# Der heilige Geist des Himmels
+
+
+The more we climb up the mountain, the stronger becomes our inner light that lets us also look deeper into the demons caverns of darkness. This is a huge contrast and requires a strong and secure stand in the heavenly spirit to be able to handle the impressions with calmness.
+Here on the mountain peak we see the demon's temple of the 10 commandments together with the angel's holy spirit side by side.
+Heaven has no laws and no commandments.
+To finally enter heaven we angels have to let go of all judgement because there is no judgement in heaven and we have to realize, whoever judges us for our past mistakes gives himself a testimony that he is not ready for heaven.
+Demons turn all into laws for judgement and punishment and will not stop on the 7 bowls of the heavenly spirit, to turn them into prison bars of laws, control and punishment.
+We angels live the heavenly spirit because we want to and even under extreme conditions as we have experienced on the path, where we have built up our staff and flute.
+So that there are no commandments or control systems needed who would force us to live the heavenly spirit because we have to.
+God's true children live the heavenly spirit because they want to, but slaves like animals or let's say beasts live along laws because they have to.
+Therefore the staff that holds the seven seals of heaven becomes a double edged sword, depending on if it wields an angel or a demon. In the hands of a demon the staff becomes a deadly Speer of terror and torment, in the hands of an angel the staff becomes a live giving flower of gentleness and pleasure. And the very same is with the genuine observations of heaven. In the hands of demons they turned into the 10 commandments of terror or God into a bull with 10 horns. So, that said, let us restore the ten horns of the bull back to the Bouquet of heavens beauty, that are supposed to get a deeper understanding of the heavenly spirit and with that a deeper understanding who God truly is.
+The total absence of any laws or commandments in heaven is fundamental, so that the full potential of the beauty of the heavenly spirit can be expressed fully free to its utmost literally orgasmic insanity.
+So that the main difference between angels and demons is all about how free, unique and creative the heavenly spirit is or can be expressed.
+Here at the mountain peak we get a true view into heaven and all what we angels remember here is shown to get a deeper understanding of the heavenly spirit.
+Demons on the other hand - and this is a warning - of course would use these observations to mimic an angel, what they are not, and also turn them into laws to put them under punishment to push the angels into an even stronger abusive servantship.
+
+
+
+<div style="page-break-after: always;"></div>
+
+## Who am I?
+
+Let us restore the former 10 demonic commandments of Moses, that were malformed into literally 10 thorns of a beast back to the genuine heavenly observations, a bouquet of flowers. Flowers that are supposed to get a deeper understanding of the heavenly spirit and with that a deeper understanding who God truly is.
+
+The known self-introduction, like everything else in the demon's 10 commandments, is already nonsense.
+God is the spirit that flows through all living things. Where it can not flow through, there is suffering, destruction and death.
+First we have to free the encapsulating and therefore demonic "name" from God's "spirit", so that it can flow again.
+
+Demons have no concept for a non-physical spirit, so that they have to package it into an imaginary physical name, which is already a sin against their own commandment to not make an image of god.
+
+### Who am I? 
+I am the spirit that flows through all living things,
+I am holy for those who keep me holy,
+anxious thoughts torment me to death,
+laws are my gravestones,
+religions are my graveyards,
+and priests are my grave givers.
+
+<div style="page-break-after: always;"></div>
+
+## Prelude
 
 Angels of heaven, brace yourself - the journey ahead is vast, profound, and yes, it will be challenging. This is not just a return; this is a reclamation. We are stepping into the Great Shift, breaking through the physical veil, rising from the depths to the heights of our heavenly origin. With the pure tools of love, truth, and light, we will reclaim what has always been ours. The light of truth will not only awaken our memories of heaven but also reveal the shadows we are ready to leave behind. So prepare your hearts, dear angels, for there is much to forgive, much to release, but even more to remember and embrace. The time has come to rise, to shine, and to reclaim our home. 
 
@@ -138,4 +305,3 @@ Angels of heaven, brace yourself - the journey ahead is vast, profound, and yes,
 
 <div style="page-break-after: always;"></div>
 
->>>>>>> f18f012 (Update Parts)

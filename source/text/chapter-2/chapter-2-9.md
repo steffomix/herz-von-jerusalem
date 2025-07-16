@@ -1,0 +1,5 @@
+## Nineth commandment: "You shalt not lie."
+
+Here again Jesus said: "The splinter you see in the eyes of someone else, always is a fragment of the beams you have in your own eyes.". 
+
+While demons strength is based on their power, our angels strength is based on our gentleness. The heavenly spirit of the angels is so kind and gentle, full of compassion and seeking for understanding and therefore trustworthy. Nobody has to fear to say the truth, therefore there are no lies in heaven. However, demons fight against lies the opposite way around, with being offended up to rage and the power of laws and with threat threat of punishment. However, we angels know, that being offended or even in rage, is the hinge of twisting the guilt to the other side, so that you will never see an angel being offended or even in rage. So when someone slapped us with a lie, we slap ourself again with the question about how we could fall away from heavens spirit that we lost our trustworthiness.

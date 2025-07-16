@@ -1,0 +1,13 @@
+## Third bowl: forgiveness
+
+Forgiveness is like the light for us angels. It helps us see, clears the way, and allows the heavenly spirit to unfold its beauty. On our flute, it is the second hole. On our staff, it is the third sentence, where the text no longer moves straight up but begins to twist like a fiery snake wrapping around a branch. And it sounds: “Always try to forgive where you want to judge.”. 
+
+Here our staff becomes like a drill, to finally break out of the demonic reality, leaving a hole behind, a bottomless pit where angels sacrifice everything that has become toxic to them. Our staff also becomes like a torch, standing in flames, giving light to see and at the same time destroying everything that does not belong to heaven.
+
+When we angels express our heavenly spirit through creations, actions, and plays, these very things can turn into obstacles. They numb our empathy and prevent us from experiencing oneness. Forgiveness removes these obstacles. It is like throwing waste into a bottomless sewer - pushing the flush of some tears and letting it disappear into the demonic realm where the heavenly spirit is absent. That's why we angels better not stick to what is meant to be sacrificed.
+
+Forgiveness is light because it allows us to see. We can only notice what we allow to reach and touch us. It purifies, refines, and makes space for the heavenly spirit to reveal its beauty. In this way, forgiveness also is the angel's way to sacrifice.
+If we angels want to see into the demonic reality and reveal their true nature, we must sacrifice ourselves and forgive everything that happens to us. This is the true reason behind Jesus' sacrifice. But demons will stop at nothing to twist and distort the truth for their own purposes.
+Demons cannot let go, do not forgive. Therefore they do not see, have no light and no empathy. Their identity is tied to their creations, their possessions, and their past experiences. To forgive, for them, would mean to cease to exist. So, they remain trapped in the very filth that angels have already sacrificed. Once fallen into the demonic sewage, which distorts reality, escape becomes nearly impossible.
+
+Like pigs wallowing in mud, demons cling to their suffering. Lacking the heavenly spirit, they construct a reality of laws and punishments, trying to mimic a divine order. But in truth, they are nothing more than beautifully decorated graves, rotting from the inside out. And as their decay seeps through their polished facades, their laws grow ever more detailed, ever more rigid. In the end, all their rules and punishments reveal their own wretchedness.

@@ -299,6 +299,94 @@ Angels of heaven, brace yourself - the journey ahead is vast, profound, and yes,
 
 <div style="page-break-after: always;"></div>
 
+## First commandment: "Thou shalt have no other gods before me".
+
+We angels are like unique transparent gemstones, where the spirit of our God - that is our heavenly spirit - shines through in its unique ways, expressions and colors.
+
+
+<div style="page-break-after: always;"></div>
+
+## Second commandment: "Thou shalt not make unto thee any graven image".
+
+This commandment goes even further than nonsense, because it declares the total condemnation and ban to express the heavenly spirit. But that's what we angels are all about. We are creative and love to express the beauty of our spirit in all possible ways. But we would never worship our creations and put them before and between us and our God. because then they would become an obstacle and separate us from our divine source.
+
+<div style="page-break-after: always;"></div>
+
+## Third commandment: "Thou shalt not take the name of the Lord thy God in vain".
+
+This is a demonic masterpiece. It forbids to abuse the spirit of God like I have already told you. But the entire commandments are an abuse of it in itself. The masterpiece in this part is, that if you turn something exactly upside down together with everything that belongs to it, it all looks right and solid again and it is impossible to find any flaws in it.
+
+<div style="page-break-after: always;"></div>
+
+## Fourth commandment: "Thou shalt not take the name of the Lord thy God in vain".
+
+Demons have no understanding of the concept of a spirit, so that they simply declare a lazy day, to worship their inner emptiness. We angels on the other hand stay away from activities from time to time, to cleanse our inner connection to our divine source from all obstacles like taking a regular physical bath for cleaning. So that we do not follow the fears and predictions of our mind that much. The mind that surrounds us is like a reality translation suite. But during this cleaning process we break through the mind shell and reconnect to our true divine identity and realign with its spirit.
+
+<div style="page-break-after: always;"></div>
+
+## Fifth commandment: "Honor thy father and thy mother".
+
+Yet another demonic joke: It just says to not behave like a nasty brat. But all demons do behave like nasty brats and they do that from birth. 
+We angels are, by nature, humble servants and quiet supporters. We seek no reward - but we are under no obligation to empower demons. When a demon appears, we firmly shut every door and window to safeguard our spirit and deny them access.
+
+<div style="page-break-after: always;"></div>
+
+## Sixth commandment: "Thou shalt not kill".
+
+Again a commandment, that contradicts itself. Demons are already dead, they just don't know it. They are buried alive under a pile of commandments, literally stoned to a special type of death. A second death, where the connection to the inner divine spirit is completely blocked. Where we do not see a living soul, but only a shiny grave decoration, that proudly behaves along the laws as expected. But under the surface there is only rotting stench, and fiery anger. Every stone of a law or just an order a demon throws on others or even on himself is a brick of the wall to the freedom in heaven. A wall we angels try to break through all the time, to remember to the origin of heaven. But for the pride addicted demons, the humbleness of the angels is a deadly poison. So that every time we angels make a breakthrough, the wall gets bigger.
+
+<div style="page-break-after: always;"></div>
+
+## Seventh commandment: "Thou shalt not commit adultery".
+
+Angels of heaven live in a deeply connected marriage with the heavenly spirit of God, which completely excludes the possibility of adultery. So in order to be able to commit adultery, the heavenly spirit has to be rejected first. Once the marriage with the first love of the heavenly spirit is buried alive under a pile of laws and orders, the ability of a healthy and deeply connected relationship is destroyed, a marriage with a replacement of the first love has to be kept by force with a law. That's how demons decorate their graves.
+
+<div style="page-break-after: always;"></div>
+
+## Eighth commandment: "Thou shalt not steal".
+
+Here again we see a demonic masterpiece of twisting the reality. Jesus said: "The splinter you see in the eyes of someone else, always is a fragment of the beams you have in your own eyes.". Demons never take responsibility for their actions and will never accept that they are the reason for a theft.
+The expectation of a reward based on abilities, degree or position is already stealing.
+In heaven everyone engages with the abilities he has, without any expectations of any reward. Expectations are the lack of trust in the heavenly spirit and the fear that comes with it. And money goes one step further: It is an expression, an image of the expectation with the purpose to hide and compensate the lack of trust. It creates a false trust which is a lie and makes the real trust crumble even more. Until the trust in money is gone also. It then needs another compensation like surveillance, then governments, law enforcement officers, punishments, prisons and so on. Compensation over compensation, lie over lie over another lie.
+But it does not stop here. Once the heavenly spirit is buried under an enforced money system, The service for money is enforced also and turns everyone into its slavery. And most of its slaves don't have a staff - an expression of the strength of my heavenly spirit - like me to drill through all of its lies of compensation layers. Most of them stop way before at things like the Government and its taxes, the payment rules, the money system and so on.
+
+<div style="page-break-after: always;"></div>
+
+## Nineth commandment: "You shalt not lie."
+
+Here again Jesus said: "The splinter you see in the eyes of someone else, always is a fragment of the beams you have in your own eyes.". 
+
+While demons strength is based on their power, our angels strength is based on our gentleness. The heavenly spirit of the angels is so kind and gentle, full of compassion and seeking for understanding and therefore trustworthy. Nobody has to fear to say the truth, therefore there are no lies in heaven. However, demons fight against lies the opposite way around, with being offended up to rage and the power of laws and with threat threat of punishment. However, we angels know, that being offended or even in rage, is the hinge of twisting the guilt to the other side, so that you will never see an angel being offended or even in rage. So when someone slapped us with a lie, we slap ourself again with the question about how we could fall away from heavens spirit that we lost our trustworthiness.
+
+<div style="page-break-after: always;"></div>
+
+The Tenth commandment is broken into fragments, to protect and empowere the rich to have the possibility to trick, outsmart or sneak to steal their wishes and desires. 
+
+However, humble and gentle graciousness of us angels often lead us to trick, outsmart and sneak to bless and support our environment. So that when someone gets a gift from seemingly nowhere, it was for sure an angel from heaven, because they don't need to be praised for a gift.
+
+<div style="page-break-after: always;"></div>
+
+
+Final words:
+Angels of heaven, be aware that demons will always try to mimic the heavenly spirit in order to sneak into the heavenly realm and also try to pull you back into their demonic reality. And they do it always the way it is written on the staff.
+    1. Demons try to entertain you to shift your awareness away from your inner divine source.
+
+    2. Demons try to praise you to lift you away from your solid ground of humbleness.
+
+    3. Once pride begins to sneaks into you and make you feel entitled to be something better, your ability to forgive will sneak away and you will become judgmental.
+
+    4. Once you have become judgmental, your angelique strength of a gentle heart will be weakened. And your weakened heart will build up walls for protection. And your locked up heart behind walls will lock up your graciousness also.
+
+    5. Once you have begun to build up walls, you have crossed to point of no return, so that every challenge that would strengthen your heavenly spirit otherwise, will lead you to build even more walls and become even more judgmental.
+
+    6. Once your walls have locked up your heart completely, they will act on its own and you will appear as if you have no soul, no spirit, no love. You will behave like beast, react solely on the physical outside and act only for physical outside needs and instincts.
+
+    7. Once you have become a beast, you have reached a special kind of death and you - or your walls - will not be able anymore to grasp the concept of spirit and you will only be able to mimic a living soul. And where a living soul self deeply reflects his inner spirit and divine connection, you will only paint and decorate your grave of your starved and locked soul with an up to pyramidal temple of commandments, that require ever more laws and orders to cover the stench of your desperate and bitter rotting soul, that wants to break through all of its shell, its grave.
+
+However, I have shown you how to do that. The rest is up to you. There is no other way than my way. I have checked that out. I have pushed myself into the state of second death. I know what it means to be there. And the only thing I had to revive myself was the seven sentences, that I have burned into my staff by myself with my own fiery repentance. So the staff is the key to heaven. But you will have to discover the deep meaning of it by yourself, to get back your angelique roots and God's voice."
+
+<div style="page-break-after: always;"></div>
+
 Prelude
 
 Angels of heaven, brace yourself - the journey ahead is vast, profound, and yes, it will be challenging. This is not just a return; this is a reclamation. We are stepping into the Great Shift, breaking through the physical veil, rising from the depths to the heights of our heavenly origin. With the pure tools of love, truth, and light, we will reclaim what has always been ours. The light of truth will not only awaken our memories of heaven but also reveal the shadows we are ready to leave behind. So prepare your hearts, dear angels, for there is much to forgive, much to release, but even more to remember and embrace. The time has come to rise, to shine, and to reclaim our home. 

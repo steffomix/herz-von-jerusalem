@@ -403,7 +403,7 @@ Mit der offenlegung des himmlischen Geistes ist kein weiterer Zugang mehr mögli
 
 # Day 3: Resurrection of Jerusalem
 
-Der ewige und lebendige Tempel von Jerusalem ist ein Ausdruck des ewigen und lebendigen himmlischen Geistes selbst. Er kann genausowenig aus der Perspektive des toten und vergänglichen Ausdrucks entdeckt und zum Ausdruck gebracht werden, wie ein Bild nicht den Maler malen kann. Wir werden den Weg des Ausdrucks bis zum Ende gehen müssen. Den Himmlischen Geist bis aufs äußerste, bis in den zweiten Tod herrausfordern, um ihn in seiner Ganzheit erfahren zu können. Dorthin, wo Ende und Anfang sich begegnen. Nur dort, im Anfang, die Ganzheit des Himmlischen in uns, können wir den Ursprung und das Zentrum des Himmels, den ewigen und lebendigen Tempel von Jerusalem begreifen und hier in der Materiellen Welt wieder finden und zum Ausdruck bringen.
+Der ewige und lebendige Tempel von Jerusalem ist ein Ausdruck des ewigen und lebendigen himmlischen Geistes selbst. Er kann genauso wenig aus der Perspektive des toten und vergänglichen Ausdrucks entdeckt und zum Ausdruck gebracht werden, wie ein Bild nicht den Maler malen kann. Wir werden den Weg des Ausdrucks bis zum Ende gehen müssen. Den Himmlischen Geist bis aufs äußerste, bis in den zweiten Tod herausfordern, um ihn in seiner Ganzheit erfahren zu können. Dorthin, wo Ende und Anfang sich begegnen. Nur dort, im Anfang, die Ganzheit des Himmlischen in uns, können wir den Ursprung und das Zentrum des Himmels, den ewigen und lebendigen Tempel von Jerusalem begreifen und hier in der Materiellen Welt wieder finden und zum Ausdruck bringen.
 
 
 
@@ -494,6 +494,105 @@ Aber schleiche dich nicht heimlich aus der Hölle raus, nur um euch selbst zu re
 <div style="page-break-after: always;"></div>
 
 # Programm des dritten Tages
+
+
+
+
+
+<div style="page-break-after: always;"></div>
+
+
+## Kapitel 1
+
+# Im Verließ der Hölle
+
+- Enthüllung des Kapitäns
+- Der Waschtisch
+- Baals Torwächter
+- Die schreie der Gefangenen
+- Der verlorene Sohn
+- Vom Vater und seinen zwei Söhnen
+- Etwas Tinte für das Sigel
+- Die Schlange
+- Die Aasfresser
+- Der letzte Ausgang
+- Ewiger Verschluss des Kerkers
+- Die Grenzlinie und die Sigeltinte
+- Das Flammenschwert der Feuerengel
+
+<div style="page-break-after: always;"></div>
+
+## Kapitel 2
+
+# Eine Bootsfahrt mit der Arche
+
+- Navigation, Wasserfluten, stilles Türen schließen, Bootsfahrt ins versprochene Land
+- Schiffsbau
+  - Sieben meter und zwei Bäume
+- Knotenpunkte
+- Weltkarte
+- Navigation
+- Himmelsbrot
+- Lebendige Wasserfluten
+- Einstieg inst Boot
+- Enthüllung des himmlischen Geistes
+- Türen schließen
+- Hochziehen der Segel
+- Vom Kleinen Schalenmacher
+- Von Blumen, Schafen und Schlangen
+- Vom großen Schalenmacher
+  - Die Ordentliche
+  - Die Große
+  - Die Herrliche
+  - Die Vielfältige
+  - Die Vereinte
+- Vom warten
+- Land in Sicht
+- Schiffshorn
+- Segel einziehen
+- Landgang
+- Trümmer des Himmels
+- Begrüßung
+
+
+
+<div style="page-break-after: always;"></div>
+
+# Kapitel 3
+
+## Das bodenlose Loch
+
+- Abstieg in das Ende
+- Verbannung
+- Heulen und Fluchen
+- Der Feuersee des Hasses
+- Der Wahnsinn der Bosheit
+- Die Stille der Finsternis
+- Der Bunker der Verzweiflung
+- Dämonenspeere
+- Jenseits der Hoffnungslosigkeit
+- Das Ende
+- Enthüllung des heiligen Geistes des Himmels
+- Der Anfang
+- Es werde noch mehr Licht
+- Transformation der bedingungslosen Liebe
+    - Die verzweifelte Liebe
+    - Die hoffnungslose Liebe
+- Die hoffnungslos bedingungslos verzweifelte Liebe
+- Vom Bunker der Hölle zum Tempel des Himmels
+- Die Schale
+- Wasser des Lebens
+- 7 Flüsse des Lebens
+- Transformation der Dämonenspeere
+    - 7 mal 70 Spiegel der Selbstreflektion
+- 7 heilige Pfade
+- Transformation der Opferschalen
+    - 7 Waschtische
+- 7 Blütenblätter
+- Die Tempelblüte
+- Im Garten des Himmels
+
+
 
 
 

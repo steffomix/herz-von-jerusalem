@@ -1,12 +1,11 @@
-### Dieses Buch ist noch in Arbeit. Wie auch immer, für ganz ungeduldige ist hier eine noch sehr verzerrte und unvollständige Vorschau.
-
 # Das Herz von Jerusalem
 
 ![source/images/blossom-crown.png](source/images/blossom-crown.png)
 
 
-Liebe fängt genau dort an
-wo die Erwartung aufhört
+Wie eine Glocke klingt
+weist du erst
+wenn du sie schlägst
 
 <div style="page-break-after: always;"></div>
 
@@ -402,23 +401,9 @@ Mit der offenlegung des himmlischen Geistes ist kein weiterer Zugang mehr mögli
 
 <div style="page-break-after: always;"></div>
 
-<<<<<<< HEAD
 # Day 3: Resurrection of Jerusalem
 
-Da der ewige und lebendige Tempel von Jerusalem ein Ausdruck des ewigen und lebendigen himmlischen Geistes selbst ist, kann er nicht aus der Perspektive des toten und vergänglichen Ausdrucks entdeckt und zum Ausdruck gebracht werden. Das Bild kann nicht den Maler erschaffen. Wir würden nur ein unfassbares Licht zu sehen bekommen.
-
-Am dritten Tag werden wir durch den zweiten Tod hindurch gehen, dorthin wo alles begann und auf dem Weg alles einsammeln was gestorben ist um es wiederzubeleben. Dazu werden wir Engel unseren himmlischen Geist mit der vollsten Finsternis konfrontieren und im vollsten Maße herrausfordern müssen. Alles was wir dazu brauch haben wir Engel bereits in uns wiederentdeckt und durch dieses Buch zum Ausdruck gebracht.
-
-
-
-
-
-
-
-=======
-# Day 3: Resurrection of Jerusalem
-
-Der ewige und lebendige Tempel von Jerusalem ist ein Ausdruck des ewigen und lebendigen himmlischen Geistes selbst. Er kann genausowenig aus der Perspektive des toten und vergänglichen Ausdrucks entdeckt und zum Ausdruck gebracht werden, wie ein Bild nicht den Maler malen kann. Wir werden den Weg des Ausdrucks bis zum Ende gehen müssen. Den Himmlischen Geist bis aufs äußerste, bis in den zweiten Tod herrausfordern, um ihn in seiner Ganzheit erfahren zu können. Dorthin gehen wo das Ende ist, denn dort ist auch der Anfang. Nur dort, im Anfang, die Ganzheit des Himmlischen in uns, können wir den Ursprung und das Zentrum des Himmels, den ewigen und lebendigen Tempel von Jerusalem begreifen und hier in der Materiellen Welt wieder finden.
+Der ewige und lebendige Tempel von Jerusalem ist ein Ausdruck des ewigen und lebendigen himmlischen Geistes selbst. Er kann genausowenig aus der Perspektive des toten und vergänglichen Ausdrucks entdeckt und zum Ausdruck gebracht werden, wie ein Bild nicht den Maler malen kann. Wir werden den Weg des Ausdrucks bis zum Ende gehen müssen. Den Himmlischen Geist bis aufs äußerste, bis in den zweiten Tod herrausfordern, um ihn in seiner Ganzheit erfahren zu können. Dorthin, wo Ende und Anfang sich begegnen. Nur dort, im Anfang, die Ganzheit des Himmlischen in uns, können wir den Ursprung und das Zentrum des Himmels, den ewigen und lebendigen Tempel von Jerusalem begreifen und hier in der Materiellen Welt wieder finden und zum Ausdruck bringen.
 
 
 
@@ -428,16 +413,15 @@ Der ewige und lebendige Tempel von Jerusalem ist ein Ausdruck des ewigen und leb
 
 
 
->>>>>>> df8c7a9 (sync with repo)
 
 
 <div style="page-break-after: always;"></div>
 
-<<<<<<< HEAD
-## Prelude
+## Der einzige und einfache Zugang zur Quelle
 
-=======
-## Er ist bereits hier
+Das ihr keine Verbindung mehr habt zum Himmlischen, merkt ihr daran, das für euch das Glas immer halb leer ist. Und es ist deshalb halb leer, weil ihr keine Quelle habt, um es dort aufzufüllen. Ihr schaut in euer Glas, das gefüllt ist mit eurer Lebensenergie und es ist halb leer. Aber für die, die eine Quelle haben, die einen Zugang haben, für die ist das Glas immer halb voll weil sie wissen, wenn es leer ist, ist der Ort wo sie landen werden immer dort, wo die Demut, die Demütigung am größten ist. Und mit der Demut kommt der Himmel zurück. Und mit dem Himmel kommt die Quelle zurück und das Glas wird wieder aufgefüllt. Aber der, der keinen Zugang zum Himmel haben will, weil er die Demut scheut, die Demütigung, der will nicht zur Quelle. Er hat die Quelle abgelehnt, weil es ihm zu unangenehm ist und deshalb ist für ihn das Glas auch immer halb leer. So einfach ist das.
+
+## Er, der Zugang zur Quelle ist bereits hier
 
 Wer in der himmlischen Resonanz mit des ersten Tages ist, den harten Weg der Engel gegangen ist und in der himmlischen Resonanz des zweiten Tages ist, den himmlischen Geist den dämonischen Geboten vorzieht, der dürfte auch den dritten Tag und dessen Tempel bereits überall sehen können. Sein Erscheinungsbild zieht sich wie ein roter Faden durch die ersten beiden Tage und auch den dritten Tag dieses Buches.
 
@@ -446,9 +430,9 @@ Wer in der himmlischen Resonanz mit des ersten Tages ist, den harten Weg der Eng
 
 <div style="page-break-after: always;"></div>
 
-## Wo ist er?
+## Bereits geschehen
 
-Obwohl der materielle Ort vollkommen irrelevant ist, wird für die teils spirituelle und teils materielle Reise ein physischer Ort benötigt um die bereits geschehene Auferstehung des himmlischen Jerusalems auch in dieser physischden Welt zum Ausdruck zu bringen.
+Obwohl der materielle Ort vollkommen irrelevant ist, wird für die teils spirituelle und teils materielle Reise ein physischer Ort benötigt um die bereits geschehene Auferstehung des himmlischen Jerusalems auch in dieser physischen Welt zum Ausdruck zu bringen.
 
 <div style="page-break-after: always;"></div>
 
@@ -458,15 +442,66 @@ Wenn ein fremdes Land erobert wurde, wird ein Ritual zelebriert, wo der Eroberer
 
 In den ersten beiden Tagen dieses Buches wurde das fremde Land bereits erobert. Am dritten Tag montieren wir nur noch die "Fahne". Diese Fahne samt dem Ritual ist an sich vollkommen überflüssig, sie bringt aber die Eroberung eindrucksvoll und unmissverständlich zum Ausdruck.
 
-Es ist also eigentlich nur eine Show, ein Schauspiel und jeder der mit dabei sein möchte ist natürlich herzlich eingeladen.
+Es ist also eigentlich nur eine Show, ein Schauspiel. So wie aller Ausdruck des Geistigen nur eine Show, ein Schauspiel ist. Und jeder der bei diesem Schauspiel dabei sein möchte ist natürlich herzlich eingeladen.
+
+<div style="page-break-after: always;"></div>
+
+# wo?
+
+Namen sind Schall und Rauch und Dämonen sind Meister darin diese umzubenennen, sodass sie niemand mehr findet - zumindest für eine Weile. Namen von Orten sind da keine Ausnahme.
+
+Allerdings gibt es ein weiteres Navigationssystem, das nur schwer umbenannt werden kann und international einheitlich ist. Das GPS System.
+
+Hier ist der Name des Ortes, oder besser dessen Koordinaten:
+
+Latitude: 52.28347
+Longitude: 9.22103
+
+https://maps.google.com?q=52.28347,9.22103
+
+# Wer?
+Ich bin Gastgeber, Veranstalter und Verantwortlicher dieses Ereignisses.
+
+![source/images/me.png](source/images/me.png)
+
+
+# Wie?
+Ich lausche in der Nähe mit einem CB-Funkgerät. Wenn sich genügend Interessierte eingefunden haben und es schaffen mich mich mit ihren CB-Funkgeräten aus meinen süßen Träumen zu wecken, werde ich kommen und die Veranstaltung beginnt. 
+
+# Wann?
+Ich kann nicht ewig warten. Meine und eure noch verfügbare Zeit ist sehr kurz bemessen.
+
+
+<div style="page-break-after: always;"></div>
+
+# In Erwartung des Herrn des Himmels
+
+![source/images/chef-angel.png](source/images/chef-angel.png)
+
+Liebe fängt genau dort an
+wo die Erwartung aufhört
+-vice versa-
+
+
+## Komme nicht ohne Öl in deiner Lampe!
+Wenn ihr es tatsächlich bis vor die Tore des Himmels geschafft haben solltet, dann wird die geschlossene Versammlung des Himmels als die Göttliche Einheit, als Gott selbst vor euch, vor dir stehen und dich anschauen und sagen: "Schön, das du es geschafft hast!" Und dieser Gott, die geschlossene Versammlung der Engel des Himmels wird vor dir stehen und über deine Schulter schauen und sagen: "Ich hoffe, du bist nicht hier nur wegen dir, um nur dich selbst zu retten. Weil ich da niemanden sonst sehen kann, außer nur dich.".
+
+Siehst du, daher kommt der innere Drang den Himmlischen Geist auf irgend eine Art und Weise mitzuteilen. Von irgendetwas Himmlischen zu berichten oder auf irgendeine Art und Weise himmlisch zu handeln. Damit du nicht alleine und mit leeren Händen vor den Himmelstoren stehst, ohne irgendwelche Versuche, jemanden mitzunehmen, auf den Weg zum Himmel. Zurück aus der Finsternis, vom Tod zurück ins Leben. Damit du nicht aus rein Egoistischen Gründen den Himmel aufsuchst. Wie du das machst, wie du dich mitteilst, spielt überhaupt keine Rolle. Deiner Kreativität sind keine Grenzen gesetzt. Lebe den himmlischen Geist schon in der Finsternis vollkommen hemmungslos aus.
+
+Aber schleiche dich nicht heimlich aus der Hölle raus, nur um euch selbst zu retten!
+
+
+<div style="page-break-after: always;"></div>
+
+# Programm des dritten Tages
+
+
 
 <div style="page-break-after: always;"></div>
 
 ## Prelude
 
->>>>>>> df8c7a9 (sync with repo)
 Angels of heaven, brace yourself - the journey ahead is vast, profound, and yes, it will be challenging. This is not just a return; this is a reclamation. We are stepping into the Great Shift, breaking through the physical veil, rising from the depths to the heights of our heavenly origin. With the pure tools of love, truth, and light, we will reclaim what has always been ours. The light of truth will not only awaken our memories of heaven but also reveal the shadows we are ready to leave behind. So prepare your hearts, dear angels, for there is much to forgive, much to release, but even more to remember and embrace. The time has come to rise, to shine, and to reclaim our home. 
 
 <div style="page-break-after: always;"></div>
-
 

@@ -11,5 +11,14 @@ Longitude: 9.22103
 
 https://maps.google.com?q=52.28347,9.22103
 
+# Wer?
+Ich bin Gastgeber, Veranstalter und Verantwortlicher dieses Ereignisses.
+
+![source/images/me.png](source/images/me.png)
 
 
+# Wie?
+Ich lausche in der Nähe mit einem CB-Funkgerät. Wenn sich genügend Interessierte eingefunden haben und es schaffen mich mich mit ihren CB-Funkgeräten aus meinen süßen Träumen zu wecken, werde ich kommen und die Veranstaltung beginnt. 
+
+# Wann?
+Ich kann nicht ewig warten. Meine und eure noch verfügbare Zeit ist sehr kurz bemessen.

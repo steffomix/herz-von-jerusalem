@@ -107,6 +107,7 @@ pageFiles =[
     Page(chapter3 + 'chapter-3-preface-4', True),
     Page(chapter3 + 'chapter-3-preface-5', True),
     Page(chapter3 + 'chapter-3-preface-6', True),
+    Page(chapter3 + 'chapter-3-preface-7', True),
     Page(chapter3 + 'chapter-3-1', True),
     Page(chapter3 + 'chapter-3-2', True),
     Page(chapter3 + 'chapter-3-3', True),

@@ -402,6 +402,7 @@ Mit der offenlegung des himmlischen Geistes ist kein weiterer Zugang mehr mögli
 
 <div style="page-break-after: always;"></div>
 
+<<<<<<< HEAD
 # Day 3: Resurrection of Jerusalem
 
 Da der ewige und lebendige Tempel von Jerusalem ein Ausdruck des ewigen und lebendigen himmlischen Geistes selbst ist, kann er nicht aus der Perspektive des toten und vergänglichen Ausdrucks entdeckt und zum Ausdruck gebracht werden. Das Bild kann nicht den Maler erschaffen. Wir würden nur ein unfassbares Licht zu sehen bekommen.
@@ -414,12 +415,56 @@ Am dritten Tag werden wir durch den zweiten Tod hindurch gehen, dorthin wo alles
 
 
 
+=======
+# Day 3: Resurrection of Jerusalem
 
+Der ewige und lebendige Tempel von Jerusalem ist ein Ausdruck des ewigen und lebendigen himmlischen Geistes selbst. Er kann genausowenig aus der Perspektive des toten und vergänglichen Ausdrucks entdeckt und zum Ausdruck gebracht werden, wie ein Bild nicht den Maler malen kann. Wir werden den Weg des Ausdrucks bis zum Ende gehen müssen. Den Himmlischen Geist bis aufs äußerste, bis in den zweiten Tod herrausfordern, um ihn in seiner Ganzheit erfahren zu können. Dorthin gehen wo das Ende ist, denn dort ist auch der Anfang. Nur dort, im Anfang, die Ganzheit des Himmlischen in uns, können wir den Ursprung und das Zentrum des Himmels, den ewigen und lebendigen Tempel von Jerusalem begreifen und hier in der Materiellen Welt wieder finden.
+
+
+
+
+
+
+
+
+
+>>>>>>> df8c7a9 (sync with repo)
+
+
+<div style="page-break-after: always;"></div>
+
+<<<<<<< HEAD
+## Prelude
+
+=======
+## Er ist bereits hier
+
+Wer in der himmlischen Resonanz mit des ersten Tages ist, den harten Weg der Engel gegangen ist und in der himmlischen Resonanz des zweiten Tages ist, den himmlischen Geist den dämonischen Geboten vorzieht, der dürfte auch den dritten Tag und dessen Tempel bereits überall sehen können. Sein Erscheinungsbild zieht sich wie ein roter Faden durch die ersten beiden Tage und auch den dritten Tag dieses Buches.
+
+
+
+
+<div style="page-break-after: always;"></div>
+
+## Wo ist er?
+
+Obwohl der materielle Ort vollkommen irrelevant ist, wird für die teils spirituelle und teils materielle Reise ein physischer Ort benötigt um die bereits geschehene Auferstehung des himmlischen Jerusalems auch in dieser physischden Welt zum Ausdruck zu bringen.
+
+<div style="page-break-after: always;"></div>
+
+## Einladung
+
+Wenn ein fremdes Land erobert wurde, wird ein Ritual zelebriert, wo der Eroberer seine Fahne auf das Dach des Regierungsgebäudes des eroberten Landes montiert. Diese Fahne samt dem Ritual ist an sich vollkommen überflüssig, sie bringt aber die Eroberung eindrucksvoll und unmissverständlich zum Ausdruck.
+
+In den ersten beiden Tagen dieses Buches wurde das fremde Land bereits erobert. Am dritten Tag montieren wir nur noch die "Fahne". Diese Fahne samt dem Ritual ist an sich vollkommen überflüssig, sie bringt aber die Eroberung eindrucksvoll und unmissverständlich zum Ausdruck.
+
+Es ist also eigentlich nur eine Show, ein Schauspiel und jeder der mit dabei sein möchte ist natürlich herzlich eingeladen.
 
 <div style="page-break-after: always;"></div>
 
 ## Prelude
 
+>>>>>>> df8c7a9 (sync with repo)
 Angels of heaven, brace yourself - the journey ahead is vast, profound, and yes, it will be challenging. This is not just a return; this is a reclamation. We are stepping into the Great Shift, breaking through the physical veil, rising from the depths to the heights of our heavenly origin. With the pure tools of love, truth, and light, we will reclaim what has always been ours. The light of truth will not only awaken our memories of heaven but also reveal the shadows we are ready to leave behind. So prepare your hearts, dear angels, for there is much to forgive, much to release, but even more to remember and embrace. The time has come to rise, to shine, and to reclaim our home. 
 
 <div style="page-break-after: always;"></div>

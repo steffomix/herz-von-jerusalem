@@ -1,3 +1,11 @@
-## Sixth commandment: "Thou shalt not kill".
+## Sechstes göttliches Prinzip: "Du sollst nicht töten"
 
-Again a commandment, that contradicts itself. Demons are already dead, they just don't know it. They are buried alive under a pile of commandments, literally stoned to a special type of death. A second death, where the connection to the inner divine spirit is completely blocked. Where we do not see a living soul, but only a shiny grave decoration, that proudly behaves along the laws as expected. But under the surface there is only rotting stench, and fiery anger. Every stone of a law or just an order a demon throws on others or even on himself is a brick of the wall to the freedom in heaven. A wall we angels try to break through all the time, to remember to the origin of heaven. But for the pride addicted demons, the humbleness of the angels is a deadly poison. So that every time we angels make a breakthrough, the wall gets bigger.
+Abermals ein Prinzip, das sich in seiner verdrehten Form selbst widerspricht. Die gefallenen Geister sind bereits tot, nur wissen sie es nicht. Sie sind lebendig begraben unter einem Berg von Geboten, buchstäblich zu Tode gesteinigt in einer besonderen Art des Sterbens - einem zweiten Tod, wo die Verbindung zum inneren göttlichen Geist vollständig blockiert ist.
+
+Wo wir keine lebendige Seele erblicken, sehen wir nur noch eine glänzende Grabdekoration, die stolz entlang der Gesetze funktioniert, wie von ihr erwartet wird. Doch unter der Oberfläche ist nur verrottender Gestank und feuriger Zorn zu finden.
+
+Jeder Stein eines Gesetzes oder auch nur eines Befehls, den ein Dämon auf andere oder sogar auf sich selbst wirft, ist ein Baustein der Mauer zur Freiheit des Himmels. Eine Mauer, die wir Engel ständig zu durchbrechen suchen, um an den Ursprung des Himmels zu erinnern.
+
+Doch für die stolzsuchtigen Dämonen ist die Demut der Engel wie tödliches Gift. So geschieht es, dass jedes Mal, wenn wir Engel einen Durchbruch erzielen, die Mauer noch höher wird.
+
+Wir Engel jedoch kennen das wahre Leben: Es ist der Atem Gottes, der durch alle Geschöpfe weht, das Licht, das in jedem mitfühlenden Herzen erstrahlt, die Liebe, die selbst die härtesten Steine zum Blühen bringen kann. Unser Auftrag ist es nicht, diese Mauern zu zerstören, sondern durch sie hindurch zu leuchten, bis das Licht stärker wird als die Dunkelheit.

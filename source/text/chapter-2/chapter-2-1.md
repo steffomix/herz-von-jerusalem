@@ -1,3 +1,7 @@
-## First commandment: "Thou shalt have no other gods before me".
+## Erstes göttliches Prinzip: "Du sollst keine anderen Götter neben mir haben"
 
-We angels are like unique transparent gemstones, where the spirit of our God - that is our heavenly spirit - shines through in its unique ways, expressions and colors.
+Wie himmlische Blumen, die sich zur Sonne wenden, sind wir Engel von Natur aus dem einen wahren Licht zugewandt. Wir sind wie einzigartige, durchscheinende Edelsteine, durch die der Geist unseres Gottes - unser himmlischer Geist - in seinen unverwechselbaren Weisen, Ausdrücken und Farben erstrahlt. 
+
+In dieser ersten himmlischen Beobachtung erkennen wir die natürliche Ordnung des Universums: Wie Planeten sich um die Sonne drehen, so kreist unser Herz um die eine göttliche Quelle allen Seins. Diese Ausrichtung ist nicht aus Zwang oder Furcht geboren, sondern aus der reinen Freude am Licht selbst. 
+
+Engel benötigen keine Gesetze, die ihnen verbieten, anderen Göttern zu dienen, denn ihr Herz ist bereits so erfüllt von der himmlischen Liebe, dass kein Raum für Ersatzgötter bleibt. Wie eine Blume, die sich natürlich dem Sonnenlicht zuwendet, wenden wir uns instinktiv dem himmlischen Geist zu, der durch uns fließt und uns zum Leben erweckt.

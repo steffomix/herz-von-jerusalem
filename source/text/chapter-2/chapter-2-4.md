@@ -1,3 +1,7 @@
-## Fourth commandment: "Thou shalt not take the name of the Lord thy God in vain".
+## Viertes göttliches Prinzip: "Gedenke des Sabbattages, dass du ihn heiligst"
 
-Demons have no understanding of the concept of a spirit, so that they simply declare a lazy day, to worship their inner emptiness. We angels on the other hand stay away from activities from time to time, to cleanse our inner connection to our divine source from all obstacles like taking a regular physical bath for cleaning. So that we do not follow the fears and predictions of our mind that much. The mind that surrounds us is like a reality translation suite. But during this cleaning process we break through the mind shell and reconnect to our true divine identity and realign with its spirit.
+Während die gefallenen Geister kein Verständnis für das Konzept eines wahren Geistes haben und einfach einen trägen Tag erklären, um ihre innere Leere anzubeten, erkennen wir Engel in diesem Prinzip eine tiefere himmlische Weisheit.
+
+Wir Engel ziehen uns von Zeit zu Zeit von weltlichen Aktivitäten zurück, um unsere innere Verbindung zu unserer göttlichen Quelle von allen Hindernissen zu reinigen - wie ein regelmäßiges spirituelles Bad für die Seele. In diesen heiligen Momenten folgen wir nicht so sehr den Ängsten und Vorhersagen unseres Verstandes. Der Verstand, der uns umgibt, ist wie eine Realitäts-Übersetzungssuite, die ständig interpretiert und deutet.
+
+Doch während dieses Reinigungsprozesses durchbrechen wir die Hülle des Verstandes und verbinden uns wieder mit unserer wahren göttlichen Identität. Wir richten uns neu aus mit dem himmlischen Geist, der unser eigentliches Wesen ist. Diese Zeiten der Stille sind nicht leer, sondern erfüllt von der reinsten Gegenwart des göttlichen Lichts, das in uns tanzt wie Sonnenstrahlen in einem kristallklaren Bergwasser.

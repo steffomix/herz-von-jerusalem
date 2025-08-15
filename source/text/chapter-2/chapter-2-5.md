@@ -1,4 +1,9 @@
-## Fifth commandment: "Honor thy father and thy mother".
+## Fünftes göttliches Prinzip: "Du sollst deinen Vater und deine Mutter ehren"
 
-Yet another demonic joke: It just says to not behave like a nasty brat. But all demons do behave like nasty brats and they do that from birth. 
-We angels are, by nature, humble servants and quiet supporters. We seek no reward - but we are under no obligation to empower demons. When a demon appears, we firmly shut every door and window to safeguard our spirit and deny them access.
+Während die gefallenen Geister dieses Prinzip zu einem bitteren Scherz verdrehen - der lediglich besagt, sich nicht wie ein ungezogener Balg zu benehmen, obwohl alle Dämonen sich von Geburt an genau so verhalten - erkennen wir Engel darin eine tiefere Wahrheit über unsere himmlische Natur.
+
+Wir Engel sind von Natur aus demütige Diener und stille Unterstützer. Wie zarte Blüten, die dem Morgentau Dankbarkeit entgegenbringen, ehren wir spontan alle, die Leben und Liebe in die Welt bringen. Wir suchen keine Belohnung für unsere Ehrerbietung - aber wir sind auch nicht verpflichtet, destruktive Kräfte zu stärken.
+
+Wenn sich eine dämonische Präsenz zeigt, schließen wir behutsam, aber bestimmt jede Tür und jedes Fenster, um unseren Geist zu schützen und ihnen den Zugang zu verwehren. Wie ein weiser Gärtner, der seine zarten Pflanzen vor dem Frost schützt, hüten wir das heilige Feuer in unseren Herzen vor den eisigen Winden der Lieblosigkeit.
+
+Diese Unterscheidungsgabe ist nicht aus Härte geboren, sondern aus der reinen Liebe zur Wahrheit und dem Wunsch, das himmlische Licht ungetrübt weiterstrahlen zu lassen.

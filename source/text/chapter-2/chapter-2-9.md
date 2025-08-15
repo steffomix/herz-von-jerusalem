@@ -1,5 +1,11 @@
-## Nineth commandment: "You shalt not lie."
+## Neuntes göttliches Prinzip: "Du sollst nicht lügen"
 
-Here again Jesus said: "The splinter you see in the eyes of someone else, always is a fragment of the beams you have in your own eyes.". 
+Hier sprach Jesus abermals: "Der Splitter, den du in den Augen eines anderen siehst, ist immer ein Fragment der Balken, die du in deinen eigenen Augen hast."
 
-While demons strength is based on their power, our angels strength is based on our gentleness. The heavenly spirit of the angels is so kind and gentle, full of compassion and seeking for understanding and therefore trustworthy. Nobody has to fear to say the truth, therefore there are no lies in heaven. However, demons fight against lies the opposite way around, with being offended up to rage and the power of laws and with threat threat of punishment. However, we angels know, that being offended or even in rage, is the hinge of twisting the guilt to the other side, so that you will never see an angel being offended or even in rage. So when someone slapped us with a lie, we slap ourself again with the question about how we could fall away from heavens spirit that we lost our trustworthiness.
+Während die Stärke der gefallenen Geister auf ihrer Macht basiert, gründet sich unsere engelhafte Stärke auf unsere Sanftmut. Der himmlische Geist der Engel ist so gütig und sanft, voller Mitgefühl und stets um Verständnis bemüht und daher vertrauenswürdig. Niemand muss Furcht haben, die Wahrheit zu sagen, daher gibt es keine Lügen im Himmel.
+
+Die Dämonen jedoch bekämpfen Lügen auf die entgegengesetzte Weise: mit Gekränktheit bis hin zur Wut und mit der Macht der Gesetze und der Drohung der Bestrafung. Wir Engel jedoch wissen, dass das Gekränktsein oder gar Wut die Drehpunkt ist, um die Schuld auf die andere Seite zu wenden, so dass man niemals einen Engel gekränkt oder gar wütend sehen wird.
+
+Wenn uns also jemand mit einer Lüge geschlagen hat, schlagen wir uns selbst nochmals mit der Frage, wie wir so weit vom himmlischen Geist abfallen konnten, dass wir unsere Vertrauenswürdigkeit verloren haben.
+
+Wie kristallklare Bergquellen sprudelt die Wahrheit natürlich aus engelshaften Herzen hervor. Wir brauchen keine Gesetze gegen die Lüge, denn wo Liebe und Vertrauen herrschen, da blüht die Wahrheit wie Blumen im Frühling. Unsere Wahrhaftigkeit ist nicht aus Furcht vor Strafe geboren, sondern aus der reinen Freude an der Klarheit des göttlichen Lichts, das durch uns strahlt.

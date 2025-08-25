@@ -1,3 +1,15 @@
-## Second Bowl: Humbleness
+## Zweite Schale: Demut
 
-Onward to the second bowl of groundedness through humbleness. On the staff, it's the second verse, or the first verse on the second day, and it reads: “Always try to be the least.”. On our flute, it's the first hole for the deepest note. This staff is here like a sword that cuts away all pride and honor. It's like a slag separator, separating the worthless from the valuable. Whoever wants to walk the path to heaven must be ready to lay down his pride. For the more the creativity and creative power of the heavenly spirit is expressed in and through us, the more humbleness is needed as a counterbalance. Humbleness is the rock, the solid ground upon which heaven is built and its angels are correspondingly steadfastly humble. For demons, on the other hand, who have absorbed the seductive greatness of heaven and are, in the truest sense, intertwined with it, humbleness is like a downright deadly, bitter, absolutely despicable poison. Therefore, it is easier for a camel to go through the eye of a needle than for a proud honorable demon to enter heaven. And nothing fills an honorable demon with more pride and makes him richer and more powerful than ruling over dutiful, humble angels. 
+![source/images/staff-2.png](source/images/staff-2.png)
+
+Weiter zur zweiten Schale der Erdung durch Demut. Auf dem Stab ist es der zweite Vers, oder der erste Vers am zweiten Tag, und er lautet: "Versuche immer, der Geringste zu sein.". Auf unserer Flöte ist es das erste Loch für den tiefsten Ton.
+
+Dieser Stab ist hier wie ein Schwert, das allen Stolz und alle Ehre wegschneidet. Er ist wie ein Schlackenscheider, der das Wertlose vom Wertvollen trennt. Wer den Weg zum Himmel wandeln will, muss bereit sein, seinen Stolz niederzulegen.
+
+Denn je mehr die Kreativität und Schöpferkraft des himmlischen Geistes in und durch uns ausgedrückt wird, desto mehr Demut wird als Gegengewicht benötigt. Demut ist der Fels, der feste Grund, auf dem der Himmel gebaut ist, und seine Engel sind entsprechend standhaft demütig.
+
+Für die Gefallenen hingegen, die die verführerische Größe des Himmels absorbiert haben und im wahrsten Sinne damit verflochten sind, ist Demut wie ein geradezu tödliches, bitteres, absolut verabscheuungswürdiges Gift. Deshalb ist es leichter für ein Kamel, durch ein Nadelöhr zu gehen, als für einen stolzen, ehrenhaften Gefallenen, in den Himmel einzutreten.
+
+Und nichts erfüllt einen ehrenhaften Gefallenen mit mehr Stolz und macht ihn reicher und mächtiger, als über pflichtbewusste, demütige Engel zu herrschen. Wie Blumen, die ihre Kraft aus den tiefen Wurzeln der Erde ziehen, so schöpfen wir Engel unsere wahre Stärke aus der Demut - jener stillen Kraft, die uns mit der unendlichen Quelle allen Seins verbindet.
+
+![source/images/flute-2.png](source/images/flute-2.png)

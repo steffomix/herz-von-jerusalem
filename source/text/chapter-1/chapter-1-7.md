@@ -1,19 +1,25 @@
-Seventh Bowl - God's voice
+## Siebte Schale - Gottes Stimme
 
-In the seventh and final bowl, we remember the beauty and purity of our heavenly spirit - preserved and kept holy through all hardships endured on our ascent to the mountain's peak. Now, with all holes of our flute open and free, we angels can use this sacred instrument to express and discover the profound depths of our divine inner connection.
+![source/images/staff-7.png](source/images/staff-7.png)
 
-Playing this flute becomes a meditation of self-reflection, realigning us with our heavenly essence. As we sound each note, we retrace our path to heaven's summit, remembering our angelic roots. Just as flowers draw nourishment from their roots, this path to the peak represents the very root of our celestial origin - our heavenly family. When we play with true devotion to our divine connection, we become conduits for God's true voice, the heavenly spirit flowing through us.
+In der siebten und letzten Schale erinnern wir uns an die Schönheit und Reinheit unseres himmlischen Geistes - bewahrt und heilig gehalten durch alle Härten, die wir bei unserem Aufstieg zum Gipfel des Berges ertragen haben. Nun, mit allen Löchern unserer Flöte offen und frei, können wir Engel dieses heilige Instrument nutzen, um die tiefen Abgründe unserer göttlichen inneren Verbindung auszudrücken und zu entdecken.
 
-We angels are living expressions of God's spirit. Yet the moment we use this instrument to impress others or manipulate our environment, we step onto the demonic descent to hell. Thus the inscription running along our flute reminds us: “Always protect and connect your humble loving heart with forgiveness.”
+Das Spielen dieser Flöte wird zu einer Meditation der Selbstreflexion, die uns mit unserem himmlischen Wesen neu ausrichtet. Während wir jeden Ton erklingen lassen, verfolgen wir unseren Weg zum Gipfel des Himmels zurück und erinnern uns an unsere engelhaften Wurzeln. So wie Blumen Nahrung aus ihren Wurzeln ziehen, repräsentiert dieser Pfad zum Gipfel die Wurzel unseres himmlischen Ursprungs - unsere himmlische Familie.
 
-The sensitivity and power of this flute's music must never be underestimated.
+Wenn wir mit wahrer Hingabe an unsere göttliche Verbindung spielen, werden wir zu Kanälen für Gottes wahre Stimme, den himmlischen Geist, der durch uns fließt. Wir Engel sind lebendige Ausdrücke von Gottes Geist. Doch in dem Moment, wo wir dieses Instrument nutzen, um andere zu beeindrucken oder unsere Umgebung zu manipulieren, betreten wir den dämonischen Abstieg zur Hölle.
 
-On the demonic path, music becomes a weapon - its power abused to push and manipulate others into foreign states of being. Success in such manipulation breeds the toxic sensations of superiority and pride. Thus emerge deceivers, those enchanted by deception, and those who follow illusions before the heavenly spirit. This abuse of music marks the beginning of demonic control.
+So erinnert uns die Inschrift entlang unserer Flöte: "Schütze und verbinde immer dein demütiges liebendes Herz mit Vergebung."
 
-The true turning point from angel to demon comes when we seek to impress with our expressions, or become more enthralled by external displays than our inner divine light. In its beautiful simplicity, the flute serves as a divine mirror - revealing whether we've strayed into darkness.
+Die Sensibilität und Kraft der Musik dieser Flöte darf niemals unterschätzt werden. Auf dem dämonischen Pfad wird Musik zu einer Waffe - ihre Kraft missbraucht, um andere in fremde Seinszustände zu drängen und zu manipulieren. Erfolg in solcher Manipulation züchtet die toxischen Empfindungen von Überlegenheit und Stolz. So entstehen Betrüger, jene, die von Täuschung verzaubert sind, und jene, die Illusionen vor dem himmlischen Geist folgen. Dieser Missbrauch der Musik markiert den Beginn dämonischer Kontrolle.
 
-When we feel unconfident in our playing or doubt our skill, these are demonic whispers trying to suppress our need for divine expression. 
+Der wahre Wendepunkt vom Engel zum Gefallenen kommt, wenn wir mit unseren Ausdrücken beeindrucken wollen oder mehr von äußeren Darstellungen fasziniert werden als von unserem inneren göttlichen Licht. In ihrer wunderschönen Einfachheit dient die Flöte als göttlicher Spiegel - sie offenbart, ob wir in die Dunkelheit abgewichen sind.
 
-Demons have fallen prey to their own impressive but hollow creations, burying their divine connection beneath layers of artifice. Without the anchor of heavenly spirit, they desperately cling to music and other impressive displays as artificial anchors for their unstable existence.
+Wenn wir uns unsicher in unserem Spiel fühlen oder an unserer Fähigkeit zweifeln, sind das dämonische Flüstern, die versuchen, unser Bedürfnis nach göttlichem Ausdruck zu unterdrücken.
 
-The seventh inscription on our staff holds mysteries too profound for words alone. It bears the true and unutterable name of God, represented as seven mirrors encircling the staff. It proclaims: “Seek God in these seven mirrors to love, to love, and again to love, more than anything in the world, more than anything measurable and more than your live.”. Here, “the world” means all expressions; “measurable” warns against comparison; and “live” signifies our worldly identity.
+Gefallene sind ihren eigenen beeindruckenden, aber hohlen Schöpfungen zum Opfer gefallen und haben ihre göttliche Verbindung unter Schichten von Künstlichkeit begraben. Ohne den Anker des himmlischen Geistes klammern sie sich verzweifelt an Musik und andere beeindruckende Darstellungen als künstliche Anker für ihre instabile Existenz.
+
+Die siebte Inschrift auf unserem Stab birgt Geheimnisse, die zu tiefgreifend für Worte allein sind. Sie trägt den wahren und unaussprechlichen Namen Gottes, dargestellt als sieben Spiegel, die den Stab umkreisen. Sie verkündet: "Suche Gott in diesen sieben Spiegeln zu lieben, zu lieben und wieder zu lieben, mehr als alles in der Welt, mehr als alles Messbare und mehr als dein Leben."
+
+Hier bedeutet "die Welt" alle Ausdrücke; "Messbar" warnt vor Vergleichen; und "Leben" bezeichnet unsere weltliche Identität. Wie kristallklare Bergwasser, die alle Hindernisse umfließen, so fließt die reine Liebe durch uns hindurch und findet immer ihren Weg zurück zur ewigen Quelle.
+
+![source/images/flute-7.png](source/images/flute-7.png)

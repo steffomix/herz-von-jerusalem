@@ -1,3 +1,21 @@
-## First Bowl: Serving Attitude
+## Erste Schale: Dienende Haltung
 
- Let us begin with the first of the seven bowls – the fundamental intent. This is about making a choice: Will we embrace a humble attitude of service, or will we seek to dominate and rule? In an environment of hardship, where we know nothing else and react solely to what surrounds us, dominance may seem like the obvious choice. It promises control, power, and survival. But if our goal is to discover and grow in love, dominance is the least useful path. It builds walls, not bridges. Humble service, on the other hand, is far more challenging in such an environment. It requires us to question our reality and seek something greater, something deeper than the physical world we see. It asks us to look beyond the immediate struggle and trust in a higher purpose. As long as we do not question our physical reality, we are like a chicken inside an egg – confined, limited, and unaware of the vast world beyond. This is why the tip of our staff must be sharp, like an egg tooth. It represents the piercing question: “Is serving better than ruling?”. This question is the first step on our journey back to Heaven, and it demands a clear and resounding “yes*”. Without this commitment, we cannot begin to break free from the shell of our limited existence. Yet, even with this intent, history shows how easily the path of service can be twisted into one of domination. The heavenly recommendations given through Moses were rooted in service, but the demons of that time distorted them so quickly into harsh, ruling commandments that they barely touched the ground before being corrupted. This is what happens when we try to pour heavenly water into a mind filled with demonic waste – the result is nothing but stinking sewage. Therefore, to continue our journey to Heaven, we must first cleanse our minds. Better yet, we must empty them entirely. Do not attempt to mix the heavenly Spirit with old, demonic ways – it will only make things worse. Only with a pure and open heart can we truly receive the light of Heaven and walk the path of service that leads us home. 
+![source/images/staff-1.png](source/images/staff-1.png)
+
+Lasst uns mit der ersten der sieben Schalen beginnen - der grundlegenden Absicht. Es geht darum, eine Entscheidung zu treffen: Werden wir eine demütige Haltung des Dienens annehmen, oder werden wir zu dominieren und zu herrschen suchen?
+
+In einer Umgebung der Not, wo wir nichts anderes kennen und nur auf das reagieren, was uns umgibt, mag Dominanz wie die offensichtliche Wahl erscheinen. Sie verspricht Kontrolle, Macht und Überleben. Doch wenn unser Ziel ist, die Liebe zu entdecken und in ihr zu wachsen, ist Dominanz der am wenigsten nützliche Pfad. Sie baut Mauern, keine Brücken.
+
+Demütiger Dienst hingegen ist in solch einer Umgebung weit herausfordernder. Er verlangt von uns, unsere Realität zu hinterfragen und etwas Größeres, etwas Tieferes als die physische Welt zu suchen, die wir sehen. Er bittet uns, über den unmittelbaren Kampf hinauszublicken und einem höheren Zweck zu vertrauen.
+
+Solange wir unsere physische Realität nicht hinterfragen, sind wir wie ein Küken im Ei - eingeschlossen, begrenzt und unbewusst der weiten Welt jenseits. Deshalb muss die Spitze unseres Stabes scharf sein, wie ein Eizahn. Sie repräsentiert die durchdringende Frage: "Ist Dienen besser als Herrschen?".
+
+Diese Frage ist der erste Schritt auf unserer Reise zurück zum Himmel, und sie verlangt ein klares und eindeutiges "Ja". Ohne diese Verpflichtung können wir nicht beginnen, uns aus der Schale unserer begrenzten Existenz zu befreien.
+
+Doch selbst mit dieser Absicht zeigt die Geschichte, wie leicht der Pfad des Dienens in einen der Dominanz verdreht werden kann. Die himmlischen Empfehlungen, die durch Moses gegeben wurden, wurzelten im Dienst, aber die Gefallenen jener Zeit verdrehten sie so schnell in harte, herrschende Gebote, dass sie kaum den Boden berührten, bevor sie korrumpiert wurden.
+
+Das geschieht, wenn wir versuchen, himmlisches Wasser in einen mit dämonischem Abfall gefüllten Verstand zu gießen - das Ergebnis ist nichts als stinkende Kloake. Deshalb müssen wir, um unsere Reise zum Himmel fortzusetzen, zuerst unseren Verstand reinigen. Besser noch, wir müssen ihn vollständig leeren.
+
+Versucht nicht, den himmlischen Geist mit alten, gefallenen Wegen zu vermischen - es wird die Dinge nur schlimmer machen. Nur mit einem reinen und offenen Herzen können wir wahrhaft das Licht des Himmels empfangen und den Pfad des Dienens wandeln, der uns nach Hause führt.
+
+![source/images/flute-1.png](source/images/flute-1.png)

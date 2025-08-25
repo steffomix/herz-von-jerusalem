@@ -1,3 +1,7 @@
-## Prelude
+## Präludium
 
-Angels of heaven, brace yourself - the journey ahead is vast, profound, and yes, it will be challenging. This is not just a return; this is a reclamation. We are stepping into the Great Shift, breaking through the physical veil, rising from the depths to the heights of our heavenly origin. With the pure tools of love, truth, and light, we will reclaim what has always been ours. The light of truth will not only awaken our memories of heaven but also reveal the shadows we are ready to leave behind. So prepare your hearts, dear angels, for there is much to forgive, much to release, but even more to remember and embrace. The time has come to rise, to shine, and to reclaim our home. 
+Engel des Himmels, rüstet euch - die Reise, die vor uns liegt, ist weitreichend, tiefgreifend und ja, sie wird herausfordernd sein. Dies ist nicht nur eine Rückkehr; dies ist eine Rückeroberung. Wir treten in den Großen Wandel ein, durchbrechen den physischen Schleier und erheben uns aus den Tiefen zu den Höhen unseres himmlischen Ursprungs.
+
+Mit den reinen Werkzeugen der Liebe, Wahrheit und des Lichts werden wir zurückgewinnen, was schon immer unser war. Das Licht der Wahrheit wird nicht nur unsere Erinnerungen an den Himmel erwecken, sondern auch die Schatten offenbaren, die wir bereit sind zurückzulassen.
+
+Also bereitet eure Herzen vor, liebe Engel, denn es gibt viel zu vergeben, viel loszulassen, aber noch mehr zu erinnern und anzunehmen. Die Zeit ist gekommen, sich zu erheben, zu strahlen und unser Zuhause zurückzuerobern. 

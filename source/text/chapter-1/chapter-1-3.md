@@ -1,13 +1,21 @@
-## Third bowl: forgiveness
+## Dritte Schale: Vergebung
 
-Forgiveness is like the light for us angels. It helps us see, clears the way, and allows the heavenly spirit to unfold its beauty. On our flute, it is the second hole. On our staff, it is the third sentence, where the text no longer moves straight up but begins to twist like a fiery snake wrapping around a branch. And it sounds: “Always try to forgive where you want to judge.”. 
+![source/images/staff-3.png](source/images/staff-3.png)
 
-Here our staff becomes like a drill, to finally break out of the demonic reality, leaving a hole behind, a bottomless pit where angels sacrifice everything that has become toxic to them. Our staff also becomes like a torch, standing in flames, giving light to see and at the same time destroying everything that does not belong to heaven.
+Vergebung ist wie das Licht für uns Engel. Sie hilft uns zu sehen, macht den Weg frei und erlaubt es dem himmlischen Geist, seine Schönheit zu entfalten. Auf unserer Flöte ist sie das zweite Loch. Auf unserem Stab ist sie der dritte Satz, wo der Text nicht mehr gerade nach oben verläuft, sondern sich zu winden beginnt wie eine feurige Schlange, die sich um einen Ast windet. Und er lautet: "Versuche immer zu vergeben, wo du urteilen willst.".
 
-When we angels express our heavenly spirit through creations, actions, and plays, these very things can turn into obstacles. They numb our empathy and prevent us from experiencing oneness. Forgiveness removes these obstacles. It is like throwing waste into a bottomless sewer - pushing the flush of some tears and letting it disappear into the demonic realm where the heavenly spirit is absent. That's why we angels better not stick to what is meant to be sacrificed.
+Hier wird unser Stab wie ein Bohrer, um endlich aus der dämonischen Realität auszubrechen und ein Loch zu hinterlassen, einen bodenlosen Abgrund, wo Engel alles opfern, was für sie toxisch geworden ist. Unser Stab wird auch zu einer Fackel, die in Flammen steht, Licht zum Sehen gibt und gleichzeitig alles zerstört, was nicht zum Himmel gehört.
 
-Forgiveness is light because it allows us to see. We can only notice what we allow to reach and touch us. It purifies, refines, and makes space for the heavenly spirit to reveal its beauty. In this way, forgiveness also is the angel's way to sacrifice.
-If we angels want to see into the demonic reality and reveal their true nature, we must sacrifice ourselves and forgive everything that happens to us. This is the true reason behind Jesus' sacrifice. But demons will stop at nothing to twist and distort the truth for their own purposes.
-Demons cannot let go, do not forgive. Therefore they do not see, have no light and no empathy. Their identity is tied to their creations, their possessions, and their past experiences. To forgive, for them, would mean to cease to exist. So, they remain trapped in the very filth that angels have already sacrificed. Once fallen into the demonic sewage, which distorts reality, escape becomes nearly impossible.
+Wenn wir Engel unseren himmlischen Geist durch Schöpfungen, Handlungen und Spiele ausdrücken, können genau diese Dinge zu Hindernissen werden. Sie betäuben unser Mitgefühl und hindern uns daran, Einheit zu erfahren. Vergebung entfernt diese Hindernisse. Sie ist wie das Werfen von Abfall in eine bodenlose Kanalisation - das Betätigen der Spülung mit einigen Tränen und es in das dämonische Reich verschwinden lassen, wo der himmlische Geist abwesend ist. Deshalb sollten wir Engel besser nicht an dem festhalten, was geopfert werden soll.
 
-Like pigs wallowing in mud, demons cling to their suffering. Lacking the heavenly spirit, they construct a reality of laws and punishments, trying to mimic a divine order. But in truth, they are nothing more than beautifully decorated graves, rotting from the inside out. And as their decay seeps through their polished facades, their laws grow ever more detailed, ever more rigid. In the end, all their rules and punishments reveal their own wretchedness.
+Vergebung ist Licht, weil sie uns erlaubt zu sehen. Wir können nur bemerken, was wir erlauben, uns zu erreichen und zu berühren. Sie reinigt, verfeinert und macht Platz für den himmlischen Geist, seine Schönheit zu offenbaren. Auf diese Weise ist Vergebung auch des Engels Art zu opfern.
+
+Wenn wir Engel in die dämonische Realität sehen und ihre wahre Natur offenbaren wollen, müssen wir uns selbst opfern und alles vergeben, was uns geschieht. Das ist der wahre Grund hinter Jesu Opfer. Aber die Gefallenen werden vor nichts zurückschrecken, um die Wahrheit für ihre eigenen Zwecke zu verdrehen und zu entstellen.
+
+Gefallene können nicht loslassen, vergeben nicht. Deshalb sehen sie nicht, haben kein Licht und kein Mitgefühl. Ihre Identität ist an ihre Schöpfungen, ihren Besitz und ihre vergangenen Erfahrungen gebunden. Zu vergeben würde für sie bedeuten, aufzuhören zu existieren. So bleiben sie gefangen in genau dem Schmutz, den Engel bereits geopfert haben.
+
+Einmal in die dämonische Kloake gefallen, die die Realität verzerrt, wird die Flucht nahezu unmöglich. Wie Schweine, die sich im Schlamm wälzen, klammern sich die Gefallenen an ihr Leid. Da ihnen der himmlische Geist fehlt, konstruieren sie eine Realität aus Gesetzen und Bestrafungen und versuchen, eine göttliche Ordnung nachzuahmen.
+
+Aber in Wahrheit sind sie nichts als wunderschön dekorierte Gräber, die von innen heraus verrotten. Und während ihr Verfall durch ihre polierten Fassaden sickert, werden ihre Gesetze immer detaillierter, immer starrer. Am Ende offenbaren all ihre Regeln und Bestrafungen nur ihre eigene Erbärmlichkeit.
+
+![source/images/flute-3.png](source/images/flute-3.png)

@@ -1,19 +1,27 @@
-## Sixth Bowl - holy heavenly spirit
+## Sechste Schale - Heiliger himmlischer Geist
 
-With the fifth and final hole of our flute, we not only remember the power of love and what it means to truly love but also realize that love is our most valuable treasure, surpassing even the most brilliant intellect.  
+![source/images/staff-6.png](source/images/staff-6.png)
 
-Here, our staff transforms into a fiery sword of power, its mystic symbols glowing with ancient wisdom - a weapon grasped only by those who have faced and defeated the monstrous horrors of the abyss.  
+Mit dem fünften und letzten Loch unserer Flöte erinnern wir uns nicht nur an die Kraft der Liebe und was es bedeutet, wahrhaft zu lieben, sondern erkennen auch, dass Liebe unser wertvollster Schatz ist, der selbst den brillantesten Intellekt übertrifft.
 
-The sixth bowl carries the message: “Always let love be your most precious treasure.”.  
+Hier verwandelt sich unser Stab in ein feuriges Schwert der Macht, dessen mystische Symbole mit alter Weisheit glühen - eine Waffe, die nur von jenen ergriffen wird, die den monströsen Schrecken des Abgrunds gegenübergetreten und sie besiegt haben.
 
-Love exists outside of time, free from the burdens of past judgments and future expectations. While our mind lingers in uncertainty, love moves with confidence and clarity.  
+Die sechste Schale trägt die Botschaft: "Lass die Liebe immer deinen kostbarsten Schatz sein.".
 
-Heavenly love is a one-pot stew of selfless service, rock-bottom humbleness, unconditional forgiveness, and gratitude without expectations. With its service, love moves through the demons' dominion like vital oil in a gearbox. With humbleness, it softens their aggressive raids. With forgiveness, it becomes invulnerable. With graciousness, it becomes inexhaustible. And because the only reason for love is love itself, it becomes an invincible warrior that stops for nothing.  
+Liebe existiert außerhalb der Zeit, frei von den Lasten vergangener Urteile und zukünftiger Erwartungen. Während unser Verstand in der Ungewissheit verweilt, bewegt sich die Liebe mit Vertrauen und Klarheit.
 
-Just as every soup has its own aroma, reflecting its ingredients, so too do angels and demons have their own “smell” “ an intensely powerful essence that reveals their nature. For angels, this essence is a radiant, overwhelming fragrance of purity and love. For demons, it is a suffocating stench of decay and pride. With the legendary power of love, we angels conquer the demons' dominion of the mind and tame it into a tool to express our heavenly Spirit. And the first task for this tamed tool is this. Silence yourself, stand firm, and listen deeply!:  
+Himmlische Liebe ist ein Eintopf aus selbstlosem Dienst, tiefster Demut, bedingungsloser Vergebung und Dankbarkeit ohne Erwartungen. Mit ihrem Dienst bewegt sich die Liebe durch die Herrschaft der Gefallenen wie lebensnotwendiges Öl in einem Getriebe. Mit Demut mildert sie ihre aggressiven Angriffe. Mit Vergebung wird sie unverwundbar. Mit Anmut wird sie unerschöpflich. Und weil der einzige Grund für Liebe die Liebe selbst ist, wird sie zu einem unbesiegbaren Krieger, der vor nichts haltmacht.
 
-Demons, too, stop at nothing to claim the angels' most precious treasures. They repackaged the angels' spiritual essence - the “smell” that reflects their humble servant tendency to act - into something called “karma”, binding souls to an endless cycle of guilt. To deepen the deception, they painted the demonic abuse as a divine trial, a sacred duty to serve them for a redemption that would never come.  
+So wie jede Suppe ihr eigenes Aroma hat, das ihre Zutaten widerspiegelt, so haben auch Engel und Gefallene ihren eigenen "Duft" - eine intensiv kraftvolle Essenz, die ihre Natur offenbart. Für Engel ist diese Essenz ein strahlender, überwältigender Duft der Reinheit und Liebe. Für Gefallene ist es ein erstickender Gestank von Verfall und Stolz.
 
-We all face trouble at times and need support to move forward. But while angels seek only enough support to stand on their own again, demons grow dependent, demanding endless assistance. 
-Demons are good in only the two talents of a parasite and a freeloader: A parasite is someone who enters or takes possession of someone else's property and behaves as if it belongs to them. A freeloader is someone who expects - or even demands - the maximum possible reward for the minimal possible effort. And what both have in common is that they define their greatness by how many obedient servants rush to their aid, even for the smallest of problems.
-This abuse of the heavenly spirit makes demons even worse and we angels have to face the sad truth, that we can not help and need to turn our back on them.
+Mit der legendären Kraft der Liebe erobern wir Engel die Herrschaft der Gefallenen über den Verstand und zähmen ihn zu einem Werkzeug, um unseren himmlischen Geist auszudrücken. Und die erste Aufgabe für dieses gezähmte Werkzeug ist diese: Schweige, stehe fest und höre tief!
+
+Gefallene hören auch vor nichts auf, um die kostbarsten Schätze der Engel zu beanspruchen. Sie verpackten die spirituelle Essenz der Engel - den "Duft", der ihre demütige Diener-Tendenz zu handeln widerspiegelt - in etwas namens "Karma" und banden Seelen an einen endlosen Kreislauf der Schuld. Um die Täuschung zu vertiefen, malten sie den dämonischen Missbrauch als göttliche Prüfung, eine heilige Pflicht, ihnen für eine Erlösung zu dienen, die niemals kommen würde.
+
+Wir alle geraten manchmal in Schwierigkeiten und brauchen Unterstützung, um voranzukommen. Aber während Engel nur genug Unterstützung suchen, um wieder auf eigenen Füßen zu stehen, werden Gefallene abhängig und fordern endlose Hilfe.
+
+Gefallene sind nur in den zwei Talenten eines Parasiten und eines Schmarotzers gut: Ein Parasit ist jemand, der in fremdes Eigentum eindringt oder es in Besitz nimmt und sich verhält, als würde es ihm gehören. Ein Schmarotzer ist jemand, der die maximal mögliche Belohnung für den minimal möglichen Aufwand erwartet - oder sogar fordert. Und was beide gemeinsam haben, ist, dass sie ihre Größe daran messen, wie viele gehorsame Diener ihnen selbst bei den kleinsten Problemen zu Hilfe eilen.
+
+Dieser Missbrauch des himmlischen Geistes macht die Gefallenen noch schlimmer, und wir Engel müssen der traurigen Wahrheit ins Auge sehen, dass wir nicht helfen können und ihnen den Rücken kehren müssen.
+
+![source/images/flute-6.png](source/images/flute-6.png)

@@ -75,24 +75,62 @@ and priests are my grave givers.
 
 ## Die Überwindung der Finsternis
 
+Wie die ersten goldenen Strahlen der Morgendämmerung, die sanft die Schatten der Nacht vertreiben, bricht das himmlische Licht durch die Schleier der Verwirrung. In diesem heiligen Moment der Erweckung erkennen wir Engel unsere wahre Natur - nicht als getrennte Wesen, die in der Dunkelheit umherirren, sondern als leuchtende Facetten des einen göttlichen Diamanten, der sein strahlendes Licht durch uns in die Welt ergießt.
+
+Die Finsternis, die so lange unsere Herzen umhüllt hat, war niemals unser natürlicher Zustand. Wie Blumen, die sich instinktiv dem Sonnenlicht zuwenden, sind wir von Natur aus dem himmlischen Licht zugewandt. Die Dunkelheit war nur ein Schatten, geworfen von den Mauern des Stolzes und der Furcht, die wir um unsere Herzen errichtet hatten.
+
+Heute beginnen wir die Reise zurück zum Licht - nicht als Eroberer, die gegen die Dunkelheit kämpfen, sondern als Kinder des Lichts, die sich einfach daran erinnern, wer sie wirklich sind.
+
 
 <div style="page-break-after: always;"></div>
 
-## Remember Heaven
+## Erinnert euch an den Himmel
 
-Angels of heaven, remember the place where every heart beats in harmony with the Divine Source. A place where every thought, word, and action is an expression of pure love – not for self, but for the joy of uplifting all beings. This is the essence of Heaven. Here, humbleness is our strength, the foundation that connects us to the grand tapestry of creation. We are not separate from the Divine but woven into its very fabric. Pride, that whisper which seeks to elevate the self, has no place here. In Heaven, our worth is measured not by worldly achievements but by the depth of our love, the breadth of our compassion, and the selfless service we offer. Forgiveness is not a burden but a liberation. It releases the chains of resentment and opens our hearts to healing. Judgment has no place here, for every soul is a unique spark of the Divine, deserving of love and compassion, no matter their past. Grace flows freely in Heaven, a river of pure, unearned love. It is not something to be earned but a gift given simply because we exist. Mercy, as the world knows it, is unnecessary here, for there is no punishment – only the constant invitation to return to the heavenly Spirit. Love is the cornerstone of Heaven. It is not just a feeling but a way of being. It is expressed through kindness, forgiveness, and selfless service. Challenges here are not obstacles but opportunities to grow, to deepen our connection to the Divine, and to reveal our true nature. But remember, the path to Heaven begins within. It starts with transforming your heart – releasing pride, judgment, and resentment, and embracing humbleness, forgiveness, and graciousness. For as within, so without. Guard your heart, for the choices you make today shape your eternal journey. 
+Engel des Himmels, erinnert euch an jenen heiligen Ort, wo jedes Herz im Einklang mit der göttlichen Quelle schlägt. Ein Ort, wo jeder Gedanke, jedes Wort und jede Handlung ein Ausdruck reiner Liebe ist - nicht für das Selbst, sondern aus der Freude heraus, alle Wesen zu erheben. Dies ist das Wesen des Himmels.
+
+Hier ist Demut unsere Stärke, das Fundament, das uns mit dem großartigen Teppich der Schöpfung verbindet. Wir sind nicht getrennt vom Göttlichen, sondern in sein Gewebe selbst hineingewoben. Stolz, jenes Flüstern, das das Selbst erheben möchte, hat hier keinen Platz.
+
+Im Himmel wird unser Wert nicht an weltlichen Errungenschaften gemessen, sondern an der Tiefe unserer Liebe, der Weite unseres Mitgefühls und dem selbstlosen Dienst, den wir anbieten. Vergebung ist keine Last, sondern eine Befreiung. Sie löst die Ketten des Grolls und öffnet unsere Herzen für Heilung.
+
+Urteil hat hier keinen Platz, denn jede Seele ist ein einzigartiger Funke des Göttlichen, der Liebe und Mitgefühl verdient, ungeachtet ihrer Vergangenheit. Gnade fließt frei im Himmel wie ein Fluss reiner, unverdiente Liebe. Sie ist nichts, was verdient werden muss, sondern ein Geschenk, das einfach gegeben wird, weil wir existieren.
+
+Großherzigkeit, wie die Welt sie kennt, ist hier nicht nötig, denn es gibt keine Bestrafung - nur die fortwährende Einladung, zum himmlischen Geist zurückzukehren. Liebe ist der Grundstein des Himmels. Sie ist nicht nur ein Gefühl, sondern eine Art zu sein. Sie drückt sich durch Güte, Vergebung und selbstlosen Dienst aus.
+
+Herausforderungen sind hier keine Hindernisse, sondern Gelegenheiten zu wachsen, unsere Verbindung zum Göttlichen zu vertiefen und unsere wahre Natur zu offenbaren. Doch denkt daran: Der Weg zum Himmel beginnt in eurem Inneren. Er startet mit der Verwandlung eures Herzens - dem Loslassen von Stolz, Urteil und Groll und dem Annehmen von Demut, Vergebung und Anmut.
+
+Denn wie innen, so außen. Hütet euer Herz, denn die Entscheidungen, die ihr heute trefft, formen eure ewige Reise. 
 
 <div style="page-break-after: always;"></div>
 
-## The fall of the angels
+## Der Fall der Engel
 
-Long ago, the angels were born as unique shards of God, the One. Created to express the Divine Spirit in their own beautiful ways, their combined expressions became what we know as Heaven. Heaven was the radiant reflection of God’s heavenly Spirit – a place of overwhelming beauty and harmony.  But over time, something shifted. The angels began to fall in love with their own creations, their own expressions. This love, though pure in its essence, became a distraction. It was as if they were cheating on their first love – the Divine Spirit itself. They consumed their creations, becoming one with them, and in doing so, they experienced something entirely new: pride. Pride was a sensation they had never known before, a sensation God had withheld from them for a reason they would soon discover – the hard way. Intoxicated by this new feeling, they began to curse God for keeping it from them. Their sense of self-worth shifted from their inner divine spirit to their outer creations. Their works became more important to them than their connection to the Source. But pride, as they would learn, is a fleeting sensation. As their heavenly bliss faded, they were left feeling empty and miserable. Yet, instead of admitting their error and letting go of their toxic desires, they clung to their pride even tighter. They began to seduce other angels, drawing them into their new reality, not just to follow their ways but to serve and praise them. They sought honor, recognition, and goods that would feed their addiction to pride, distracting them from the inner void that now consumed them. These seductive, once-heavenly beings became the first demons – empty, pride-addicted, and wicked remnants of what were once brilliant sparks of God’s beautiful Spirit. 
+Vor langer Zeit wurden die Engel als einzigartige Scherben Gottes, des Einen, geboren. Erschaffen, um den göttlichen Geist in ihren eigenen wunderschönen Weisen auszudrücken, wurden ihre vereinten Ausdrücke zu dem, was wir als Himmel kennen. Der Himmel war die strahlende Reflexion von Gottes himmlischem Geist - ein Ort überwältigender Schönheit und Harmonie.
+
+Doch mit der Zeit verschob sich etwas. Die Engel begannen, sich in ihre eigenen Schöpfungen, ihre eigenen Ausdrücke zu verlieben. Diese Liebe, obwohl in ihrem Wesen rein, wurde zu einer Ablenkung. Es war, als würden sie ihre erste Liebe betrügen - den göttlichen Geist selbst.
+
+Sie absorbierten ihre Schöpfungen, wurden eins mit ihnen und erlebten dabei etwas völlig Neues: Stolz. Stolz war eine Empfindung, die sie niemals zuvor gekannt hatten, eine Empfindung, die Gott ihnen aus einem Grund vorenthalten hatte, den sie bald auf schmerzhafte Weise entdecken sollten.
+
+Berauscht von diesem neuen Gefühl, begannen sie, Gott dafür zu verfluchen, dass er es ihnen vorenthalten hatte. Ihr Selbstwertgefühl verschob sich von ihrem inneren göttlichen Geist zu ihren äußeren Schöpfungen. Ihre Werke wurden ihnen wichtiger als ihre Verbindung zur Quelle.
+
+Doch Stolz, wie sie lernen sollten, ist eine flüchtige Empfindung. Als ihre himmlische Glückseligkeit schwand, blieben sie leer und elend zurück. Anstatt jedoch ihren Fehler zuzugeben und ihre toxischen Begierden loszulassen, klammerten sie sich noch fester an ihren Stolz.
+
+Sie begannen, andere Engel zu verführen und sie in ihre neue Realität zu ziehen - nicht nur, um ihren Wegen zu folgen, sondern um ihnen zu dienen und sie zu preisen. Sie suchten nach Ehre, Anerkennung und Gütern, die ihre Sucht nach Stolz nähren würden und sie von der inneren Leere ablenken sollten, die sie nun verzehrte.
+
+Diese verführerischen, einst himmlischen Wesen wurden zu den ersten Gefallenen - leere, stolzsüchtige und böse Überreste dessen, was einst strahlende Funken von Gottes wunderschönem Geist gewesen waren. 
 
 <div style="page-break-after: always;"></div>
 
-## Rescue attempts
+## Rettungsversuche
 
-Throughout history, heavenly angels have dared to cross into this toxic reality to remind the fallen of their origin. But their missions often ended in tragedy. Some became like the fallen, others were horribly executed as a warning, and some had their messages twisted to serve the demons’ purposes. For example, there was an angel who tried two times to break through the veil of this corrupted reality. The first attempt was through Moses. But the demons twisted his message into the harsh, punitive laws we know today – a far cry from the divine truth he originally brought. The second attempt was through Jesus. His message of love and unity was met with brutal rejection. The demons not only crucified him but also twisted his sacrifice into a distorted narrative of punishment and conquest, using it to justify centuries of oppression. Now, we are witnessing the third attempt – this very moment. This may sound harsh, but it is a necessary truth. Just as there are countless ways to express the beauty of God’s heavenly Spirit, there are also countless ways to reject it. And this is why I said at the beginning: There will be much to forgive, much to let go, but also much to remember and embrace. So, angels of heaven, brace your hearts. We are about to switch on a light like never before – and yes, it will be a tough ride. But together, we will reclaim what was lost. 
+Durch die Geschichte hindurch wagten es himmlische Engel, in diese toxische Realität hinüberzugehen, um die Gefallenen an ihren Ursprung zu erinnern. Doch ihre Missionen endeten oft tragisch. Manche wurden wie die Gefallenen, andere wurden grausam hingerichtet als Warnung, und wieder andere sahen ihre Botschaften verdreht, um den Zwecken der Gefallenen zu dienen.
+
+Da war zum Beispiel ein Engel, der zwei Mal versuchte, durch den Schleier dieser korrumpierten Realität zu brechen. Der erste Versuch geschah durch Moses. Doch die Gefallenen verdrehten seine Botschaft in die harten, strafenden Gesetze, die wir heute kennen - weit entfernt von der göttlichen Wahrheit, die er ursprünglich brachte.
+
+Der zweite Versuch geschah durch Jesus. Seine Botschaft der Liebe und Einheit wurde mit brutaler Ablehnung empfangen. Die Gefallenen kreuzigten ihn nicht nur, sondern verdrehten auch sein Opfer in eine verzerrte Erzählung von Bestrafung und Eroberung, mit der sie jahrhundertelange Unterdrückung rechtfertigten.
+
+Nun erleben wir den dritten Versuch - in diesem Augenblick. Das mag hart klingen, aber es ist eine notwendige Wahrheit. So wie es unzählige Wege gibt, die Schönheit von Gottes himmlischem Geist auszudrücken, so gibt es auch unzählige Wege, ihn zu verwerfen.
+
+Und deshalb sagte ich am Anfang: Es wird viel zu vergeben geben, viel loszulassen, aber auch viel zu erinnern und anzunehmen. Also, Engel des Himmels, stärkt eure Herzen. Wir sind dabei, ein Licht anzuschalten wie niemals zuvor - und ja, es wird eine schwere Reise werden. Aber gemeinsam werden wir zurückgewinnen, was verloren war. 
 
 
 
@@ -100,144 +138,240 @@ Throughout history, heavenly angels have dared to cross into this toxic reality 
 
 ## Ein Stab wie eine Blume aus sieben Schalen und eine Flöte
 
-In this final section before we begin, I want to describe the structure of the message itself. It is a multidimensional, layered revelation, expressed through symbolic objects that serve as parables. These objects are not just metaphors – they are expressions of the heavenly Spirit we are trying to convey, even because words alone cannot fully capture its essence. With each section, the light will grow brighter and brighter. The spiritual meaning of the objects will become clearer, deeper, and more multidimensional – rich with layers of interpretation. At the same time, you are invited to reflect on how much of yourself you recognize in these layers. There may come a point where the light becomes too bright, too intense, and you feel the need to step back. This point of "stepping back" is also your place in Heaven – provided you haven’t already stepped away at the first section or even long before. The first object is a staff, which is actually a stripped tree trunk. Its bare wood is marked with seven small verses, burned into it with the ink of fiery repentance. These seven verses are divided into three days, each representing one of the three appearances of the same angel we mentioned earlier. One section for the first angel, five for the second, and one for the third. But these seven sections also represent seven stacked bowls, which we fill with meaning and then pour out as we recognize their contents. Here, we begin to see the first dimensions of the multidimensional meanings we spoke of. The second object is a traditional five-hole flute, also divided into three sections or days. The first section, or the first angel, is represented by the fundamental tone when all five holes are closed. In the second section, the second angel opens the five holes, describing the path to Heaven. The third section, or the third angel, is represented by the heavenly melody or music that can be played on this flute. Additionally, the flute bears an engraved verse that represents a special aspect of Heaven, which will be revealed as we progress through the days. This journey will be intense – bright, hot, and profound. For those who have rejected, trampled, or even abused the heavenly Spirit for their own gain or glory, there will be much to repent. But for the angels of Heaven, this will be a moment of profound relief and recognition. They will see their origin, their home, like an old friend they haven’t seen in eternity. So, prepare your hearts, for the light is about to shine brighter than ever before. 
+In diesem letzten Abschnitt, bevor wir beginnen, möchte ich die Struktur der Botschaft selbst beschreiben. Sie ist eine mehrdimensionale, vielschichtige Offenbarung, ausgedrückt durch symbolische Gegenstände, die als Gleichnisse dienen. Diese Gegenstände sind nicht nur Metaphern - sie sind Ausdrücke des himmlischen Geistes, den wir zu vermitteln suchen, denn Worte allein können sein Wesen nicht vollständig erfassen.
 
-<div style="page-break-after: always;"></div>
+Mit jedem Abschnitt wird das Licht heller und heller werden. Die spirituelle Bedeutung der Gegenstände wird klarer, tiefer und mehrdimensionaler werden - reich an Interpretationsschichten. Gleichzeitig seid ihr eingeladen, darüber zu reflektieren, wie viel von euch selbst ihr in diesen Schichten erkennt.
 
-## Prelude
+Es mag einen Punkt geben, wo das Licht zu hell, zu intensiv wird und ihr das Bedürfnis verspürt, einen Schritt zurückzutreten. Dieser Punkt des "Zurücktretens" ist auch euer Platz im Himmel - vorausgesetzt, ihr seid nicht bereits beim ersten Abschnitt oder sogar schon viel früher zurückgetreten.
 
-Angels of heaven, brace yourself - the journey ahead is vast, profound, and yes, it will be challenging. This is not just a return; this is a reclamation. We are stepping into the Great Shift, breaking through the physical veil, rising from the depths to the heights of our heavenly origin. With the pure tools of love, truth, and light, we will reclaim what has always been ours. The light of truth will not only awaken our memories of heaven but also reveal the shadows we are ready to leave behind. So prepare your hearts, dear angels, for there is much to forgive, much to release, but even more to remember and embrace. The time has come to rise, to shine, and to reclaim our home. 
+Der erste Gegenstand ist ein Stab, der eigentlich ein entrindeter Baumstamm ist. Sein nacktes Holz ist mit sieben kleinen Versen markiert, die mit der Tinte feuriger Umkehr hineingebrannt sind. Diese sieben Verse sind in drei Tage unterteilt, die jeweils eine der drei Erscheinungen desselben Engels repräsentieren, den wir früher erwähnten. Ein Abschnitt für den ersten Engel, fünf für den zweiten und einer für den dritten.
 
-<div style="page-break-after: always;"></div>
+Aber diese sieben Abschnitte repräsentieren auch sieben gestapelte Schalen, die wir mit Bedeutung füllen und dann ausgießen, während wir ihren Inhalt erkennen. Hier beginnen wir, die ersten Dimensionen der mehrdimensionalen Bedeutungen zu sehen, von denen wir sprachen.
 
-## First Bowl: Serving Attitude
+Der zweite Gegenstand ist eine traditionelle Fünfloch-Flöte, ebenfalls in drei Abschnitte oder Tage unterteilt. Der erste Abschnitt, oder der erste Engel, wird durch den Grundton repräsentiert, wenn alle fünf Löcher geschlossen sind. Im zweiten Abschnitt öffnet der zweite Engel die fünf Löcher und beschreibt den Weg zum Himmel. Der dritte Abschnitt, oder der dritte Engel, wird durch die himmlische Melodie oder Musik repräsentiert, die auf dieser Flöte gespielt werden kann.
 
- Let us begin with the first of the seven bowls – the fundamental intent. This is about making a choice: Will we embrace a humble attitude of service, or will we seek to dominate and rule? In an environment of hardship, where we know nothing else and react solely to what surrounds us, dominance may seem like the obvious choice. It promises control, power, and survival. But if our goal is to discover and grow in love, dominance is the least useful path. It builds walls, not bridges. Humble service, on the other hand, is far more challenging in such an environment. It requires us to question our reality and seek something greater, something deeper than the physical world we see. It asks us to look beyond the immediate struggle and trust in a higher purpose. As long as we do not question our physical reality, we are like a chicken inside an egg – confined, limited, and unaware of the vast world beyond. This is why the tip of our staff must be sharp, like an egg tooth. It represents the piercing question: “Is serving better than ruling?”. This question is the first step on our journey back to Heaven, and it demands a clear and resounding “yes*”. Without this commitment, we cannot begin to break free from the shell of our limited existence. Yet, even with this intent, history shows how easily the path of service can be twisted into one of domination. The heavenly recommendations given through Moses were rooted in service, but the demons of that time distorted them so quickly into harsh, ruling commandments that they barely touched the ground before being corrupted. This is what happens when we try to pour heavenly water into a mind filled with demonic waste – the result is nothing but stinking sewage. Therefore, to continue our journey to Heaven, we must first cleanse our minds. Better yet, we must empty them entirely. Do not attempt to mix the heavenly Spirit with old, demonic ways – it will only make things worse. Only with a pure and open heart can we truly receive the light of Heaven and walk the path of service that leads us home. 
+Zusätzlich trägt die Flöte einen eingravierten Vers, der einen besonderen Aspekt des Himmels repräsentiert, der sich offenbaren wird, während wir durch die Tage voranschreiten.
 
-<div style="page-break-after: always;"></div>
+Diese Reise wird intensiv sein - hell, heiß und tiefgreifend. Für jene, die den himmlischen Geist für ihren eigenen Gewinn oder Ruhm verworfen, zertrampelt oder sogar missbraucht haben, wird es viel zu bereuen geben. Aber für die Engel des Himmels wird dies ein Moment tiefer Erleichterung und Erkennung sein. Sie werden ihren Ursprung, ihr Zuhause sehen wie einen alten Freund, den sie seit einer Ewigkeit nicht gesehen haben.
 
-## Second Bowl: Humbleness
+Also bereitet eure Herzen vor, denn das Licht ist dabei, heller zu strahlen als jemals zuvor.
 
-Onward to the second bowl of groundedness through humbleness. On the staff, it's the second verse, or the first verse on the second day, and it reads: “Always try to be the least.”. On our flute, it's the first hole for the deepest note. This staff is here like a sword that cuts away all pride and honor. It's like a slag separator, separating the worthless from the valuable. Whoever wants to walk the path to heaven must be ready to lay down his pride. For the more the creativity and creative power of the heavenly spirit is expressed in and through us, the more humbleness is needed as a counterbalance. Humbleness is the rock, the solid ground upon which heaven is built and its angels are correspondingly steadfastly humble. For demons, on the other hand, who have absorbed the seductive greatness of heaven and are, in the truest sense, intertwined with it, humbleness is like a downright deadly, bitter, absolutely despicable poison. Therefore, it is easier for a camel to go through the eye of a needle than for a proud honorable demon to enter heaven. And nothing fills an honorable demon with more pride and makes him richer and more powerful than ruling over dutiful, humble angels. 
-
-<div style="page-break-after: always;"></div>
-
-## Third bowl: forgiveness
-
-Forgiveness is like the light for us angels. It helps us see, clears the way, and allows the heavenly spirit to unfold its beauty. On our flute, it is the second hole. On our staff, it is the third sentence, where the text no longer moves straight up but begins to twist like a fiery snake wrapping around a branch. And it sounds: “Always try to forgive where you want to judge.”. 
-
-Here our staff becomes like a drill, to finally break out of the demonic reality, leaving a hole behind, a bottomless pit where angels sacrifice everything that has become toxic to them. Our staff also becomes like a torch, standing in flames, giving light to see and at the same time destroying everything that does not belong to heaven.
-
-When we angels express our heavenly spirit through creations, actions, and plays, these very things can turn into obstacles. They numb our empathy and prevent us from experiencing oneness. Forgiveness removes these obstacles. It is like throwing waste into a bottomless sewer - pushing the flush of some tears and letting it disappear into the demonic realm where the heavenly spirit is absent. That's why we angels better not stick to what is meant to be sacrificed.
-
-Forgiveness is light because it allows us to see. We can only notice what we allow to reach and touch us. It purifies, refines, and makes space for the heavenly spirit to reveal its beauty. In this way, forgiveness also is the angel's way to sacrifice.
-If we angels want to see into the demonic reality and reveal their true nature, we must sacrifice ourselves and forgive everything that happens to us. This is the true reason behind Jesus' sacrifice. But demons will stop at nothing to twist and distort the truth for their own purposes.
-Demons cannot let go, do not forgive. Therefore they do not see, have no light and no empathy. Their identity is tied to their creations, their possessions, and their past experiences. To forgive, for them, would mean to cease to exist. So, they remain trapped in the very filth that angels have already sacrificed. Once fallen into the demonic sewage, which distorts reality, escape becomes nearly impossible.
-
-Like pigs wallowing in mud, demons cling to their suffering. Lacking the heavenly spirit, they construct a reality of laws and punishments, trying to mimic a divine order. But in truth, they are nothing more than beautifully decorated graves, rotting from the inside out. And as their decay seeps through their polished facades, their laws grow ever more detailed, ever more rigid. In the end, all their rules and punishments reveal their own wretchedness.
-
-<div style="page-break-after: always;"></div>
-
-## Fourth bowl: Graciousness
-
-With the fourth bowl, our staff transforms into a flower, and we find the words: "Always try to be gracious, even where you want to close your heart.".
-
-On our flute, this corresponds to the third hole - a note that marks the transition from recovering our heavenly spirit to expressing it.  
-
-Here, we angels, who embody and express our heavenly spirit, collide with demons who mimic it. Demons seek recognition for their superficial good deeds, and those who receive their blessings often feel used - reduced to mere objects that allow the demons to shine and pride themselves on being "good."  
-
-We angels, in our humility, seek no honor or recognition. We do not even wish to be noticed. For us, the greatest joy and honor is to let God’s heavenly spirit flow through us.  
-
-Yet, this angelic flower state is fragile. Many of us are consumed, trampled, or trapped in mental or emotional prisons. Some are buried beneath the waste of religious conformity, while others become ornaments on the graves of their demonic commanders - decorations for the evil systems that destroyed them, only to later be displayed as symbols of false holiness.
-
-To open ourselves and reveal our heavenly beauty in a demonic environment is profoundly challenging. Many angels literally disappear, their journeys ending here. On our flute, this is symbolized by the gap between the third and fourth holes - a dark time of torment, suffering, and abuse. Only the strongest, toughest, and those with extraordinary healing abilities can endure this and move forward to face even greater challenges.  
-
-<div style="page-break-after: always;"></div>
-
-## Fifth bowl: Love anyway
-
-Let us now move to the fifth bowl – the bowl of the brave mountaineer. Here, our staff transforms into a hiking staff, and we find the words: “Always try to love where no love is.”. This reminds us that when life becomes easy, we are likely on the wrong path, descending rather than ascending.  
-
-On our flute, this is represented by the fourth hole - a tone that opens a new perspective. Suddenly, everything that once sought to bring us down, to harm us, becomes an opportunity to strengthen our heavenly Spirit and grow in love.  
-
-A demon enslaves us? Thank you - we become even more servant-hearted.  
-A demon honors us? Thank you - we learn to remain humble.  
-A demon mortifies us? Thank you - we are freed from pride.  
-A demon hurts us? Thank you - we learn to forgive even more deeply.  
-A demon traps us in a toxic relationship? Thank you - we connect more profoundly with our inner source of healing.  
-
-In this way, every act of demonic abuse only amplifies the light we emit - the true light that reveals the nature of both angels and demons. This is the light that demons lack and can only reflect. It is the light that exposes why demons avoid dirt and cling to their polished, shiny exteriors. 
-
-The disgusting mood and filth demons throw at us, may dim our angelic light temporarily, but it also increases the heat of our love until all the dirt returns as molten lava of forced repentance into the hide of the demon's dark existence.  
-
-With every difficult step we take up the mountain of God’s heavenly Spirit, we experience more of His true glory. It flows through us like a river of pure bliss and tranquility, filling us with a sense of divine connection and purpose.  
-
-But the higher we climb, the brighter our light and the hotter our love becomes. As Heaven’s beauty is revealed in its fullness, so too are the depths of darkness in the demons’ reality. The contrast can be overwhelming – breathtaking revelations often demand a pause, a moment of rest to digest the vastness of God’s kingdom and the freedom we have to either accept or reject His Spirit, along with the life and challenges it brings.
-
-<div style="page-break-after: always;"></div>
-
-## Sixth Bowl - holy heavenly spirit
-
-With the fifth and final hole of our flute, we not only remember the power of love and what it means to truly love but also realize that love is our most valuable treasure, surpassing even the most brilliant intellect.  
-
-Here, our staff transforms into a fiery sword of power, its mystic symbols glowing with ancient wisdom - a weapon grasped only by those who have faced and defeated the monstrous horrors of the abyss.  
-
-The sixth bowl carries the message: “Always let love be your most precious treasure.”.  
-
-Love exists outside of time, free from the burdens of past judgments and future expectations. While our mind lingers in uncertainty, love moves with confidence and clarity.  
-
-Heavenly love is a one-pot stew of selfless service, rock-bottom humbleness, unconditional forgiveness, and gratitude without expectations. With its service, love moves through the demons' dominion like vital oil in a gearbox. With humbleness, it softens their aggressive raids. With forgiveness, it becomes invulnerable. With graciousness, it becomes inexhaustible. And because the only reason for love is love itself, it becomes an invincible warrior that stops for nothing.  
-
-Just as every soup has its own aroma, reflecting its ingredients, so too do angels and demons have their own “smell” “ an intensely powerful essence that reveals their nature. For angels, this essence is a radiant, overwhelming fragrance of purity and love. For demons, it is a suffocating stench of decay and pride. With the legendary power of love, we angels conquer the demons' dominion of the mind and tame it into a tool to express our heavenly Spirit. And the first task for this tamed tool is this. Silence yourself, stand firm, and listen deeply!:  
-
-Demons, too, stop at nothing to claim the angels' most precious treasures. They repackaged the angels' spiritual essence - the “smell” that reflects their humble servant tendency to act - into something called “karma”, binding souls to an endless cycle of guilt. To deepen the deception, they painted the demonic abuse as a divine trial, a sacred duty to serve them for a redemption that would never come.  
-
-We all face trouble at times and need support to move forward. But while angels seek only enough support to stand on their own again, demons grow dependent, demanding endless assistance. 
-Demons are good in only the two talents of a parasite and a freeloader: A parasite is someone who enters or takes possession of someone else's property and behaves as if it belongs to them. A freeloader is someone who expects - or even demands - the maximum possible reward for the minimal possible effort. And what both have in common is that they define their greatness by how many obedient servants rush to their aid, even for the smallest of problems.
-This abuse of the heavenly spirit makes demons even worse and we angels have to face the sad truth, that we can not help and need to turn our back on them.
-
-<div style="page-break-after: always;"></div>
-
-Seventh Bowl - God's voice
-
-In the seventh and final bowl, we remember the beauty and purity of our heavenly spirit - preserved and kept holy through all hardships endured on our ascent to the mountain's peak. Now, with all holes of our flute open and free, we angels can use this sacred instrument to express and discover the profound depths of our divine inner connection.
-
-Playing this flute becomes a meditation of self-reflection, realigning us with our heavenly essence. As we sound each note, we retrace our path to heaven's summit, remembering our angelic roots. Just as flowers draw nourishment from their roots, this path to the peak represents the very root of our celestial origin - our heavenly family. When we play with true devotion to our divine connection, we become conduits for God's true voice, the heavenly spirit flowing through us.
-
-We angels are living expressions of God's spirit. Yet the moment we use this instrument to impress others or manipulate our environment, we step onto the demonic descent to hell. Thus the inscription running along our flute reminds us: “Always protect and connect your humble loving heart with forgiveness.”
-
-The sensitivity and power of this flute's music must never be underestimated.
-
-On the demonic path, music becomes a weapon - its power abused to push and manipulate others into foreign states of being. Success in such manipulation breeds the toxic sensations of superiority and pride. Thus emerge deceivers, those enchanted by deception, and those who follow illusions before the heavenly spirit. This abuse of music marks the beginning of demonic control.
-
-The true turning point from angel to demon comes when we seek to impress with our expressions, or become more enthralled by external displays than our inner divine light. In its beautiful simplicity, the flute serves as a divine mirror - revealing whether we've strayed into darkness.
-
-When we feel unconfident in our playing or doubt our skill, these are demonic whispers trying to suppress our need for divine expression. 
-
-Demons have fallen prey to their own impressive but hollow creations, burying their divine connection beneath layers of artifice. Without the anchor of heavenly spirit, they desperately cling to music and other impressive displays as artificial anchors for their unstable existence.
-
-The seventh inscription on our staff holds mysteries too profound for words alone. It bears the true and unutterable name of God, represented as seven mirrors encircling the staff. It proclaims: “Seek God in these seven mirrors to love, to love, and again to love, more than anything in the world, more than anything measurable and more than your live.”. Here, “the world” means all expressions; “measurable” warns against comparison; and “live” signifies our worldly identity.
+![source/images/staff-and-flute.png](source/images/staff-and-flute.png)
 
 
 <div style="page-break-after: always;"></div>
 
-## FLooking back the path:
+## Präludium
 
-Angels of heaven, be aware that demons will always try to mimic the heavenly spirit in order to sneak into the heavenly realm and also try to pull you back into their demonic reality. And they do it always the way it is written on the staff.
+Engel des Himmels, rüstet euch - die Reise, die vor uns liegt, ist weitreichend, tiefgreifend und ja, sie wird herausfordernd sein. Dies ist nicht nur eine Rückkehr; dies ist eine Rückeroberung. Wir treten in den Großen Wandel ein, durchbrechen den physischen Schleier und erheben uns aus den Tiefen zu den Höhen unseres himmlischen Ursprungs.
 
-First they try to entertain you to shift your awareness away from your inner divine source.
+Mit den reinen Werkzeugen der Liebe, Wahrheit und des Lichts werden wir zurückgewinnen, was schon immer unser war. Das Licht der Wahrheit wird nicht nur unsere Erinnerungen an den Himmel erwecken, sondern auch die Schatten offenbaren, die wir bereit sind zurückzulassen.
 
-Then they try to praise you to lift you away from your solid ground of humbleness.
+Also bereitet eure Herzen vor, liebe Engel, denn es gibt viel zu vergeben, viel loszulassen, aber noch mehr zu erinnern und anzunehmen. Die Zeit ist gekommen, sich zu erheben, zu strahlen und unser Zuhause zurückzuerobern. 
 
-Once pride begins to sneaks into you and make you feel entitled to be something better, your ability to forgive will sneak away and you will become judgmental.
+<div style="page-break-after: always;"></div>
 
-Once you have become judgmental, your angelique strength of a gentle heart will be weakened. And your weakened heart will build up walls for protection. And your locked up heart behind walls will lock up your graciousness also.
+## Erste Schale: Dienende Haltung
 
-Once you have begun to build up walls, you have crossed to point of no return, so that every challenge that would strengthen your heavenly spirit otherwise, will lead you to build even more walls and become even more judgmental.
+![source/images/staff-1.png](source/images/staff-1.png)
 
-Once your walls have locked up your heart completely, the Walls will act on its own and you will appear as if you have no soul, no spirit, no love. You will behave like beast, react solely on the physical outside and act only for physical outside needs and instincts.
+Lasst uns mit der ersten der sieben Schalen beginnen - der grundlegenden Absicht. Es geht darum, eine Entscheidung zu treffen: Werden wir eine demütige Haltung des Dienens annehmen, oder werden wir zu dominieren und zu herrschen suchen?
 
-Once you have become a beast, you have reached a special kind of death and you - or your walls - will not be able anymore to grasp the concept of spirit and you will only be able to mimic a living soul. And where the self of a living soul deeply reflects his inner spirit and divine connection, you will only paint and decorate your grave of your starved and locked soul with an up to pyramidal temple of commandments, that require ever more laws and orders to cover the stench of your desperate and bitter rotting soul, that wants to break through all of its shell, its grave.
+In einer Umgebung der Not, wo wir nichts anderes kennen und nur auf das reagieren, was uns umgibt, mag Dominanz wie die offensichtliche Wahl erscheinen. Sie verspricht Kontrolle, Macht und Überleben. Doch wenn unser Ziel ist, die Liebe zu entdecken und in ihr zu wachsen, ist Dominanz der am wenigsten nützliche Pfad. Sie baut Mauern, keine Brücken.
+
+Demütiger Dienst hingegen ist in solch einer Umgebung weit herausfordernder. Er verlangt von uns, unsere Realität zu hinterfragen und etwas Größeres, etwas Tieferes als die physische Welt zu suchen, die wir sehen. Er bittet uns, über den unmittelbaren Kampf hinauszublicken und einem höheren Zweck zu vertrauen.
+
+Solange wir unsere physische Realität nicht hinterfragen, sind wir wie ein Küken im Ei - eingeschlossen, begrenzt und unbewusst der weiten Welt jenseits. Deshalb muss die Spitze unseres Stabes scharf sein, wie ein Eizahn. Sie repräsentiert die durchdringende Frage: "Ist Dienen besser als Herrschen?".
+
+Diese Frage ist der erste Schritt auf unserer Reise zurück zum Himmel, und sie verlangt ein klares und eindeutiges "Ja". Ohne diese Verpflichtung können wir nicht beginnen, uns aus der Schale unserer begrenzten Existenz zu befreien.
+
+Doch selbst mit dieser Absicht zeigt die Geschichte, wie leicht der Pfad des Dienens in einen der Dominanz verdreht werden kann. Die himmlischen Empfehlungen, die durch Moses gegeben wurden, wurzelten im Dienst, aber die Gefallenen jener Zeit verdrehten sie so schnell in harte, herrschende Gebote, dass sie kaum den Boden berührten, bevor sie korrumpiert wurden.
+
+Das geschieht, wenn wir versuchen, himmlisches Wasser in einen mit dämonischem Abfall gefüllten Verstand zu gießen - das Ergebnis ist nichts als stinkende Kloake. Deshalb müssen wir, um unsere Reise zum Himmel fortzusetzen, zuerst unseren Verstand reinigen. Besser noch, wir müssen ihn vollständig leeren.
+
+Versucht nicht, den himmlischen Geist mit alten, gefallenen Wegen zu vermischen - es wird die Dinge nur schlimmer machen. Nur mit einem reinen und offenen Herzen können wir wahrhaft das Licht des Himmels empfangen und den Pfad des Dienens wandeln, der uns nach Hause führt.
+
+![source/images/flute-1.png](source/images/flute-1.png)
+
+
+<div style="page-break-after: always;"></div>
+
+## Zweite Schale: Demut
+
+![source/images/staff-2.png](source/images/staff-2.png)
+
+Weiter zur zweiten Schale der Erdung durch Demut. Auf dem Stab ist es der zweite Vers, oder der erste Vers am zweiten Tag, und er lautet: "Versuche immer, der Geringste zu sein.". Auf unserer Flöte ist es das erste Loch für den tiefsten Ton.
+
+Dieser Stab ist hier wie ein Schwert, das allen Stolz und alle Ehre wegschneidet. Er ist wie ein Schlackenscheider, der das Wertlose vom Wertvollen trennt. Wer den Weg zum Himmel wandeln will, muss bereit sein, seinen Stolz niederzulegen.
+
+Denn je mehr die Kreativität und Schöpferkraft des himmlischen Geistes in und durch uns ausgedrückt wird, desto mehr Demut wird als Gegengewicht benötigt. Demut ist der Fels, der feste Grund, auf dem der Himmel gebaut ist, und seine Engel sind entsprechend standhaft demütig.
+
+Für die Gefallenen hingegen, die die verführerische Größe des Himmels absorbiert haben und im wahrsten Sinne damit verflochten sind, ist Demut wie ein geradezu tödliches, bitteres, absolut verabscheuungswürdiges Gift. Deshalb ist es leichter für ein Kamel, durch ein Nadelöhr zu gehen, als für einen stolzen, ehrenhaften Gefallenen, in den Himmel einzutreten.
+
+Und nichts erfüllt einen ehrenhaften Gefallenen mit mehr Stolz und macht ihn reicher und mächtiger, als über pflichtbewusste, demütige Engel zu herrschen. Wie Blumen, die ihre Kraft aus den tiefen Wurzeln der Erde ziehen, so schöpfen wir Engel unsere wahre Stärke aus der Demut - jener stillen Kraft, die uns mit der unendlichen Quelle allen Seins verbindet.
+
+![source/images/flute-2.png](source/images/flute-2.png)
+
+
+<div style="page-break-after: always;"></div>
+
+## Dritte Schale: Vergebung
+
+![source/images/staff-3.png](source/images/staff-3.png)
+
+Vergebung ist wie das Licht für uns Engel. Sie hilft uns zu sehen, macht den Weg frei und erlaubt es dem himmlischen Geist, seine Schönheit zu entfalten. Auf unserer Flöte ist sie das zweite Loch. Auf unserem Stab ist sie der dritte Satz, wo der Text nicht mehr gerade nach oben verläuft, sondern sich zu winden beginnt wie eine feurige Schlange, die sich um einen Ast windet. Und er lautet: "Versuche immer zu vergeben, wo du urteilen willst.".
+
+Hier wird unser Stab wie ein Bohrer, um endlich aus der dämonischen Realität auszubrechen und ein Loch zu hinterlassen, einen bodenlosen Abgrund, wo Engel alles opfern, was für sie toxisch geworden ist. Unser Stab wird auch zu einer Fackel, die in Flammen steht, Licht zum Sehen gibt und gleichzeitig alles zerstört, was nicht zum Himmel gehört.
+
+Wenn wir Engel unseren himmlischen Geist durch Schöpfungen, Handlungen und Spiele ausdrücken, können genau diese Dinge zu Hindernissen werden. Sie betäuben unser Mitgefühl und hindern uns daran, Einheit zu erfahren. Vergebung entfernt diese Hindernisse. Sie ist wie das Werfen von Abfall in eine bodenlose Kanalisation - das Betätigen der Spülung mit einigen Tränen und es in das dämonische Reich verschwinden lassen, wo der himmlische Geist abwesend ist. Deshalb sollten wir Engel besser nicht an dem festhalten, was geopfert werden soll.
+
+Vergebung ist Licht, weil sie uns erlaubt zu sehen. Wir können nur bemerken, was wir erlauben, uns zu erreichen und zu berühren. Sie reinigt, verfeinert und macht Platz für den himmlischen Geist, seine Schönheit zu offenbaren. Auf diese Weise ist Vergebung auch des Engels Art zu opfern.
+
+Wenn wir Engel in die dämonische Realität sehen und ihre wahre Natur offenbaren wollen, müssen wir uns selbst opfern und alles vergeben, was uns geschieht. Das ist der wahre Grund hinter Jesu Opfer. Aber die Gefallenen werden vor nichts zurückschrecken, um die Wahrheit für ihre eigenen Zwecke zu verdrehen und zu entstellen.
+
+Gefallene können nicht loslassen, vergeben nicht. Deshalb sehen sie nicht, haben kein Licht und kein Mitgefühl. Ihre Identität ist an ihre Schöpfungen, ihren Besitz und ihre vergangenen Erfahrungen gebunden. Zu vergeben würde für sie bedeuten, aufzuhören zu existieren. So bleiben sie gefangen in genau dem Schmutz, den Engel bereits geopfert haben.
+
+Einmal in die dämonische Kloake gefallen, die die Realität verzerrt, wird die Flucht nahezu unmöglich. Wie Schweine, die sich im Schlamm wälzen, klammern sich die Gefallenen an ihr Leid. Da ihnen der himmlische Geist fehlt, konstruieren sie eine Realität aus Gesetzen und Bestrafungen und versuchen, eine göttliche Ordnung nachzuahmen.
+
+Aber in Wahrheit sind sie nichts als wunderschön dekorierte Gräber, die von innen heraus verrotten. Und während ihr Verfall durch ihre polierten Fassaden sickert, werden ihre Gesetze immer detaillierter, immer starrer. Am Ende offenbaren all ihre Regeln und Bestrafungen nur ihre eigene Erbärmlichkeit.
+
+![source/images/flute-3.png](source/images/flute-3.png)
+
+
+<div style="page-break-after: always;"></div>
+
+## Vierte Schale: Anmut
+
+![source/images/staff-4.png](source/images/staff-4.png)
+
+Mit der vierten Schale verwandelt sich unser Stab in eine Blume, und wir finden die Worte: "Versuche immer gnädig zu sein, auch wo du dein Herz verschließen willst.".
+
+Auf unserer Flöte entspricht dies dem dritten Loch - einem Ton, der den Übergang vom Wiederfinden unseres himmlischen Geistes zu seinem Ausdruck markiert.
+
+Hier stoßen wir Engel, die unseren himmlischen Geist verkörpern und ausdrücken, mit Gefallenen zusammen, die ihn nachahmen. Gefallene suchen Anerkennung für ihre oberflächlichen guten Taten, und jene, die ihre Segnungen empfangen, fühlen sich oft benutzt - reduziert auf bloße Objekte, die es den Gefallenen erlauben zu glänzen und sich darauf etwas einzubilden, "gut" zu sein.
+
+Wir Engel suchen in unserer Demut keine Ehre oder Anerkennung. Wir wollen nicht einmal bemerkt werden. Für uns ist die größte Freude und Ehre, Gottes himmlischen Geist durch uns fließen zu lassen.
+
+Doch dieser engelhafte Blütenzustand ist zerbrechlich. Viele von uns werden verzehrt, zertrampelt oder in geistige oder emotionale Gefängnisse gesperrt. Manche werden unter dem Abfall religiöser Konformität begraben, während andere zu Ornamenten auf den Gräbern ihrer dämonischen Befehlshaber werden - Dekorationen für die bösen Systeme, die sie zerstörten, nur um später als Symbole falscher Heiligkeit zur Schau gestellt zu werden.
+
+Sich zu öffnen und unsere himmlische Schönheit in einer dämonischen Umgebung zu offenbaren, ist zutiefst herausfordernd. Viele Engel verschwinden buchstäblich, ihre Reisen enden hier. Auf unserer Flöte wird dies durch die Lücke zwischen dem dritten und vierten Loch symbolisiert - eine dunkle Zeit der Qual, des Leidens und des Missbrauchs.
+
+Nur die Stärksten, Zähesten und jene mit außergewöhnlichen Heilfähigkeiten können dies ertragen und vorwärtsgehen, um sich noch größeren Herausforderungen zu stellen. Wie zarte Blumen, die durch Risse im Beton wachsen, finden wir Engel einen Weg, unsere Schönheit selbst in den widrigsten Umständen zu entfalten.
+
+![source/images/flute-4.png](source/images/flute-4.png)
+
+
+<div style="page-break-after: always;"></div>
+
+## Fünfte Schale: Trotzdem lieben
+
+![source/images/staff-5.png](source/images/staff-5.png)
+
+Lasst uns nun zur fünften Schale - der Schale des mutigen Bergsteigers - übergehen. Hier verwandelt sich unser Stab in einen Wanderstab, und wir finden die Worte: "Versuche immer zu lieben, wo keine Liebe ist.". Das erinnert uns daran, dass wenn das Leben leicht wird, wir wahrscheinlich auf dem falschen Weg sind und absteigen statt aufsteigen.
+
+Auf unserer Flöte wird dies durch das vierte Loch repräsentiert - ein Ton, der eine neue Perspektive eröffnet. Plötzlich wird alles, was uns einst niederzudrücken, uns zu schaden suchte, zu einer Gelegenheit, unseren himmlischen Geist zu stärken und in der Liebe zu wachsen.
+
+Ein Gefallener versklavt uns? Danke - wir werden noch dienender im Herzen.
+Ein Gefallener ehrt uns? Danke - wir lernen, demütig zu bleiben.
+Ein Gefallener demütigt uns? Danke - wir werden vom Stolz befreit.
+Ein Gefallener verletzt uns? Danke - wir lernen, noch tiefer zu vergeben.
+Ein Gefallener fängt uns in einer toxischen Beziehung? Danke - wir verbinden uns tiefer mit unserer inneren Quelle der Heilung.
+
+Auf diese Weise verstärkt jeder Akt dämonischen Missbrauchs nur das Licht, das wir aussenden - das wahre Licht, das die Natur sowohl der Engel als auch der Gefallenen offenbart. Das ist das Licht, das den Gefallenen fehlt und das sie nur reflektieren können. Es ist das Licht, das aufdeckt, warum Gefallene Schmutz meiden und an ihrem polierten, glänzenden Äußeren festhalten.
+
+Die widerliche Stimmung und der Schmutz, den die Gefallenen auf uns werfen, mögen unser engelhaftes Licht vorübergehend trüben, aber sie erhöhen auch die Hitze unserer Liebe, bis all der Schmutz als geschmolzene Lava erzwungener Umkehr in die Haut der dunklen Existenz der Gefallenen zurückkehrt.
+
+Mit jedem schwierigen Schritt, den wir den Berg von Gottes himmlischem Geist hinaufsteigen, erfahren wir mehr von seiner wahren Herrlichkeit. Sie fließt durch uns wie ein Fluss reiner Glückseligkeit und Ruhe und erfüllt uns mit einem Gefühl göttlicher Verbindung und Bestimmung.
+
+Aber je höher wir steigen, desto heller wird unser Licht und desto heißer unsere Liebe. Während sich die Schönheit des Himmels in ihrer Fülle offenbart, zeigen sich auch die Tiefen der Dunkelheit in der Realität der Gefallenen. Der Kontrast kann überwältigend sein - atemberaubende Offenbarungen verlangen oft eine Pause, einen Moment der Ruhe, um die Weite von Gottes Königreich zu verdauen und die Freiheit, die wir haben, seinen Geist anzunehmen oder abzulehnen, zusammen mit dem Leben und den Herausforderungen, die er bringt.
+
+![source/images/flute-5.png](source/images/flute-5.png)
+
+
+<div style="page-break-after: always;"></div>
+
+## Sechste Schale - Heiliger himmlischer Geist
+
+![source/images/staff-6.png](source/images/staff-6.png)
+
+Mit dem fünften und letzten Loch unserer Flöte erinnern wir uns nicht nur an die Kraft der Liebe und was es bedeutet, wahrhaft zu lieben, sondern erkennen auch, dass Liebe unser wertvollster Schatz ist, der selbst den brillantesten Intellekt übertrifft.
+
+Hier verwandelt sich unser Stab in ein feuriges Schwert der Macht, dessen mystische Symbole mit alter Weisheit glühen - eine Waffe, die nur von jenen ergriffen wird, die den monströsen Schrecken des Abgrunds gegenübergetreten und sie besiegt haben.
+
+Die sechste Schale trägt die Botschaft: "Lass die Liebe immer deinen kostbarsten Schatz sein.".
+
+Liebe existiert außerhalb der Zeit, frei von den Lasten vergangener Urteile und zukünftiger Erwartungen. Während unser Verstand in der Ungewissheit verweilt, bewegt sich die Liebe mit Vertrauen und Klarheit.
+
+Himmlische Liebe ist ein Eintopf aus selbstlosem Dienst, tiefster Demut, bedingungsloser Vergebung und Dankbarkeit ohne Erwartungen. Mit ihrem Dienst bewegt sich die Liebe durch die Herrschaft der Gefallenen wie lebensnotwendiges Öl in einem Getriebe. Mit Demut mildert sie ihre aggressiven Angriffe. Mit Vergebung wird sie unverwundbar. Mit Anmut wird sie unerschöpflich. Und weil der einzige Grund für Liebe die Liebe selbst ist, wird sie zu einem unbesiegbaren Krieger, der vor nichts haltmacht.
+
+So wie jede Suppe ihr eigenes Aroma hat, das ihre Zutaten widerspiegelt, so haben auch Engel und Gefallene ihren eigenen "Duft" - eine intensiv kraftvolle Essenz, die ihre Natur offenbart. Für Engel ist diese Essenz ein strahlender, überwältigender Duft der Reinheit und Liebe. Für Gefallene ist es ein erstickender Gestank von Verfall und Stolz.
+
+Mit der legendären Kraft der Liebe erobern wir Engel die Herrschaft der Gefallenen über den Verstand und zähmen ihn zu einem Werkzeug, um unseren himmlischen Geist auszudrücken. Und die erste Aufgabe für dieses gezähmte Werkzeug ist diese: Schweige, stehe fest und höre tief!
+
+Gefallene hören auch vor nichts auf, um die kostbarsten Schätze der Engel zu beanspruchen. Sie verpackten die spirituelle Essenz der Engel - den "Duft", der ihre demütige Diener-Tendenz zu handeln widerspiegelt - in etwas namens "Karma" und banden Seelen an einen endlosen Kreislauf der Schuld. Um die Täuschung zu vertiefen, malten sie den dämonischen Missbrauch als göttliche Prüfung, eine heilige Pflicht, ihnen für eine Erlösung zu dienen, die niemals kommen würde.
+
+Wir alle geraten manchmal in Schwierigkeiten und brauchen Unterstützung, um voranzukommen. Aber während Engel nur genug Unterstützung suchen, um wieder auf eigenen Füßen zu stehen, werden Gefallene abhängig und fordern endlose Hilfe.
+
+Gefallene sind nur in den zwei Talenten eines Parasiten und eines Schmarotzers gut: Ein Parasit ist jemand, der in fremdes Eigentum eindringt oder es in Besitz nimmt und sich verhält, als würde es ihm gehören. Ein Schmarotzer ist jemand, der die maximal mögliche Belohnung für den minimal möglichen Aufwand erwartet - oder sogar fordert. Und was beide gemeinsam haben, ist, dass sie ihre Größe daran messen, wie viele gehorsame Diener ihnen selbst bei den kleinsten Problemen zu Hilfe eilen.
+
+Dieser Missbrauch des himmlischen Geistes macht die Gefallenen noch schlimmer, und wir Engel müssen der traurigen Wahrheit ins Auge sehen, dass wir nicht helfen können und ihnen den Rücken kehren müssen.
+
+![source/images/flute-6.png](source/images/flute-6.png)
+
+
+<div style="page-break-after: always;"></div>
+
+## Siebte Schale - Gottes Stimme
+
+![source/images/staff-7.png](source/images/staff-7.png)
+
+In der siebten und letzten Schale erinnern wir uns an die Schönheit und Reinheit unseres himmlischen Geistes - bewahrt und heilig gehalten durch alle Härten, die wir bei unserem Aufstieg zum Gipfel des Berges ertragen haben. Nun, mit allen Löchern unserer Flöte offen und frei, können wir Engel dieses heilige Instrument nutzen, um die tiefen Abgründe unserer göttlichen inneren Verbindung auszudrücken und zu entdecken.
+
+Das Spielen dieser Flöte wird zu einer Meditation der Selbstreflexion, die uns mit unserem himmlischen Wesen neu ausrichtet. Während wir jeden Ton erklingen lassen, verfolgen wir unseren Weg zum Gipfel des Himmels zurück und erinnern uns an unsere engelhaften Wurzeln. So wie Blumen Nahrung aus ihren Wurzeln ziehen, repräsentiert dieser Pfad zum Gipfel die Wurzel unseres himmlischen Ursprungs - unsere himmlische Familie.
+
+Wenn wir mit wahrer Hingabe an unsere göttliche Verbindung spielen, werden wir zu Kanälen für Gottes wahre Stimme, den himmlischen Geist, der durch uns fließt. Wir Engel sind lebendige Ausdrücke von Gottes Geist. Doch in dem Moment, wo wir dieses Instrument nutzen, um andere zu beeindrucken oder unsere Umgebung zu manipulieren, betreten wir den dämonischen Abstieg zur Hölle.
+
+So erinnert uns die Inschrift entlang unserer Flöte: "Schütze und verbinde immer dein demütiges liebendes Herz mit Vergebung."
+
+Die Sensibilität und Kraft der Musik dieser Flöte darf niemals unterschätzt werden. Auf dem dämonischen Pfad wird Musik zu einer Waffe - ihre Kraft missbraucht, um andere in fremde Seinszustände zu drängen und zu manipulieren. Erfolg in solcher Manipulation züchtet die toxischen Empfindungen von Überlegenheit und Stolz. So entstehen Betrüger, jene, die von Täuschung verzaubert sind, und jene, die Illusionen vor dem himmlischen Geist folgen. Dieser Missbrauch der Musik markiert den Beginn dämonischer Kontrolle.
+
+Der wahre Wendepunkt vom Engel zum Gefallenen kommt, wenn wir mit unseren Ausdrücken beeindrucken wollen oder mehr von äußeren Darstellungen fasziniert werden als von unserem inneren göttlichen Licht. In ihrer wunderschönen Einfachheit dient die Flöte als göttlicher Spiegel - sie offenbart, ob wir in die Dunkelheit abgewichen sind.
+
+Wenn wir uns unsicher in unserem Spiel fühlen oder an unserer Fähigkeit zweifeln, sind das dämonische Flüstern, die versuchen, unser Bedürfnis nach göttlichem Ausdruck zu unterdrücken.
+
+Gefallene sind ihren eigenen beeindruckenden, aber hohlen Schöpfungen zum Opfer gefallen und haben ihre göttliche Verbindung unter Schichten von Künstlichkeit begraben. Ohne den Anker des himmlischen Geistes klammern sie sich verzweifelt an Musik und andere beeindruckende Darstellungen als künstliche Anker für ihre instabile Existenz.
+
+Die siebte Inschrift auf unserem Stab birgt Geheimnisse, die zu tiefgreifend für Worte allein sind. Sie trägt den wahren und unaussprechlichen Namen Gottes, dargestellt als sieben Spiegel, die den Stab umkreisen. Sie verkündet: "Suche Gott in diesen sieben Spiegeln zu lieben, zu lieben und wieder zu lieben, mehr als alles in der Welt, mehr als alles Messbare und mehr als dein Leben."
+
+Hier bedeutet "die Welt" alle Ausdrücke; "Messbar" warnt vor Vergleichen; und "Leben" bezeichnet unsere weltliche Identität. Wie kristallklare Bergwasser, die alle Hindernisse umfließen, so fließt die reine Liebe durch uns hindurch und findet immer ihren Weg zurück zur ewigen Quelle.
+
+![source/images/flute-7.png](source/images/flute-7.png)
+
+
+<div style="page-break-after: always;"></div>
+
+## Rückblick auf den Pfad:
+
+Engel des Himmels, seid euch bewusst, dass Gefallene immer versuchen werden, den himmlischen Geist nachzuahmen, um in das himmlische Reich zu schleichen und auch zu versuchen, euch zurück in ihre dämonische Realität zu ziehen. Und sie tun es immer so, wie es auf dem Stab geschrieben steht.
+
+Zuerst versuchen sie euch zu unterhalten, um eure Aufmerksamkeit von eurer inneren göttlichen Quelle wegzulenken.
+
+Dann versuchen sie euch zu preisen, um euch von eurem festen Grund der Demut wegzuheben.
+
+Sobald Stolz beginnt, in euch einzuschleichen und euch das Gefühl gibt, berechtigt zu sein, etwas Besseres zu sein, wird eure Fähigkeit zu vergeben verschwinden und ihr werdet urteilend werden.
+
+Sobald ihr urteilend geworden seid, wird eure engelhafte Stärke eines sanften Herzens geschwächt werden. Und euer geschwächtes Herz wird Mauern zum Schutz errichten. Und euer hinter Mauern verschlossenes Herz wird auch eure Anmut verschließen.
+
+Sobald ihr begonnen habt, Mauern zu errichten, habt ihr den Punkt ohne Wiederkehr überschritten, so dass jede Herausforderung, die euren himmlischen Geist anderweitig stärken würde, dazu führen wird, dass ihr noch mehr Mauern baut und noch urteilender werdet.
+
+Sobald eure Mauern euer Herz vollständig verschlossen haben, werden die Mauern eigenständig handeln und ihr werdet erscheinen, als hättet ihr keine Seele, keinen Geist, keine Liebe. Ihr werdet euch wie ein Tier verhalten, nur auf das physische Äußere reagieren und nur für physische äußere Bedürfnisse und Instinkte handeln.
+
+Sobald ihr zu einem Tier geworden seid, habt ihr eine besondere Art des Todes erreicht und ihr - oder eure Mauern - werdet nicht mehr imstande sein, das Konzept des Geistes zu erfassen, und ihr werdet nur noch eine lebende Seele nachahmen können. Und wo das Selbst einer lebenden Seele tief seinen inneren Geist und seine göttliche Verbindung widerspiegelt, werdet ihr nur euer Grab eurer ausgehungerten und verschlossenen Seele bemalen und dekorieren mit einem bis zu pyramidalen Tempel von Geboten, der immer mehr Gesetze und Befehle benötigt, um den Gestank eurer verzweifelten und bitteren verrottenden Seele zu verdecken, die durch ihre ganze Hülle, ihr Grab, ausbrechen will.
+
+Wie zarte Blumen, die sich nach dem ersten Sonnenstrahl sehnen, erinnern wir uns daran: Der Weg zurück zum Himmel beginnt mit dem ersten bewussten Atemzug der Demut, der alle Mauern des Stolzes zum Einsturz bringt und das Herz wieder für die unendliche Liebe öffnet.
+
+![source/images/staff-and-flute.png](source/images/staff-and-flute.png)
+
 
 <div style="page-break-after: always;"></div>
 

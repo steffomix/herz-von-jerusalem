@@ -1,13 +1,19 @@
-## Fourth bowl: Graciousness
+## Vierte Schale: Anmut
 
-With the fourth bowl, our staff transforms into a flower, and we find the words: "Always try to be gracious, even where you want to close your heart.".
+![source/images/staff-4.png](source/images/staff-4.png)
 
-On our flute, this corresponds to the third hole - a note that marks the transition from recovering our heavenly spirit to expressing it.  
+Mit der vierten Schale verwandelt sich unser Stab in eine Blume, und wir finden die Worte: "Versuche immer gnädig zu sein, auch wo du dein Herz verschließen willst.".
 
-Here, we angels, who embody and express our heavenly spirit, collide with demons who mimic it. Demons seek recognition for their superficial good deeds, and those who receive their blessings often feel used - reduced to mere objects that allow the demons to shine and pride themselves on being "good."  
+Auf unserer Flöte entspricht dies dem dritten Loch - einem Ton, der den Übergang vom Wiederfinden unseres himmlischen Geistes zu seinem Ausdruck markiert.
 
-We angels, in our humility, seek no honor or recognition. We do not even wish to be noticed. For us, the greatest joy and honor is to let God’s heavenly spirit flow through us.  
+Hier stoßen wir Engel, die unseren himmlischen Geist verkörpern und ausdrücken, mit Gefallenen zusammen, die ihn nachahmen. Gefallene suchen Anerkennung für ihre oberflächlichen guten Taten, und jene, die ihre Segnungen empfangen, fühlen sich oft benutzt - reduziert auf bloße Objekte, die es den Gefallenen erlauben zu glänzen und sich darauf etwas einzubilden, "gut" zu sein.
 
-Yet, this angelic flower state is fragile. Many of us are consumed, trampled, or trapped in mental or emotional prisons. Some are buried beneath the waste of religious conformity, while others become ornaments on the graves of their demonic commanders - decorations for the evil systems that destroyed them, only to later be displayed as symbols of false holiness.
+Wir Engel suchen in unserer Demut keine Ehre oder Anerkennung. Wir wollen nicht einmal bemerkt werden. Für uns ist die größte Freude und Ehre, Gottes himmlischen Geist durch uns fließen zu lassen.
 
-To open ourselves and reveal our heavenly beauty in a demonic environment is profoundly challenging. Many angels literally disappear, their journeys ending here. On our flute, this is symbolized by the gap between the third and fourth holes - a dark time of torment, suffering, and abuse. Only the strongest, toughest, and those with extraordinary healing abilities can endure this and move forward to face even greater challenges.  
+Doch dieser engelhafte Blütenzustand ist zerbrechlich. Viele von uns werden verzehrt, zertrampelt oder in geistige oder emotionale Gefängnisse gesperrt. Manche werden unter dem Abfall religiöser Konformität begraben, während andere zu Ornamenten auf den Gräbern ihrer dämonischen Befehlshaber werden - Dekorationen für die bösen Systeme, die sie zerstörten, nur um später als Symbole falscher Heiligkeit zur Schau gestellt zu werden.
+
+Sich zu öffnen und unsere himmlische Schönheit in einer dämonischen Umgebung zu offenbaren, ist zutiefst herausfordernd. Viele Engel verschwinden buchstäblich, ihre Reisen enden hier. Auf unserer Flöte wird dies durch die Lücke zwischen dem dritten und vierten Loch symbolisiert - eine dunkle Zeit der Qual, des Leidens und des Missbrauchs.
+
+Nur die Stärksten, Zähesten und jene mit außergewöhnlichen Heilfähigkeiten können dies ertragen und vorwärtsgehen, um sich noch größeren Herausforderungen zu stellen. Wie zarte Blumen, die durch Risse im Beton wachsen, finden wir Engel einen Weg, unsere Schönheit selbst in den widrigsten Umständen zu entfalten.
+
+![source/images/flute-4.png](source/images/flute-4.png)

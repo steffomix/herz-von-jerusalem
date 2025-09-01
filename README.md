@@ -11,19 +11,32 @@ wenn du sie schlägst
 
 ### Vorwort
 
-Worte können nichts Neues bringen, sondern nur das Verpacken und Transportieren, was bereits da ist.
-Jeder versteht in den Worten seiner Sprache genau das, was er gelernt hat, darin zu verstehen. Dazu kommen Einflüsse des Umfeldes, als da wären die Kultur, die Gesetzgebungen der Regierungen, Religionen, eigene Lebenserfahrungen und Gewohnheiten. So ist jeder wie eine mehr oder weniger wohlgeformte Glocke mit ihrem ganz eigenen Klang und Resonanzen, auf denen sie mal mehr und mal weniger mit schwingt. Dies führt dazu, dass jeder in denselben Worten mal mehr, mal weniger etwas anderes versteht und die Resonanz entsprechend unterschielich ist.
+Worte können nichts Neues bringen, sondern nur das Verpacken und Transportieren, was bereits da ist. Wie Gefäße aus Ton tragen sie das kostbare Wasser der Erkenntnis von einem Herzen zum anderen, doch der Durst kann nur von der Quelle selbst gestillt werden.
+
+Jeder versteht in den Worten seiner Sprache genau das, was er gelernt hat, darin zu verstehen. Dazu kommen Einflüsse des Umfeldes, als da wären die Kultur, die Gesetzgebungen der Regierungen, Religionen, eigene Lebenserfahrungen und Gewohnheiten. So ist jeder wie eine mehr oder weniger wohlgeformte Glocke mit ihrem ganz eigenen Klang und Resonanzen, auf denen sie mal mehr und mal weniger mit schwingt. Dies führt dazu, dass jeder in denselben Worten mal mehr, mal weniger etwas anderes versteht und die Resonanz entsprechend unterschiedlich ist.
 
 Die Familie der Priester und Gurus - ich würde sie Baals Priester nennen - machen sich diesen Effekt der Resonanz gerne zunutze, um bei ihren Zuhörern etwas auszulösen, das ihnen Vorteile, bestenfalls einen überbordenden Lebensunterhalt erbringt.
+
 Die Wahrheit, die du als Zuhörer in den Worten eines Gurus erkennst, oder besser wiedererkennst, war bereits in dir. Der Guru ist bloß die Leinwand, die dein Licht wie ein Prisma in schillernden Farben zerbricht und wie ein polierter Spiegel beeindruckend zurück strahlt. So beeindruckend, dass du glaubst, das Licht komme aus ihm, um dich zu erleuchten. Tatsächlich aber zerstückelt er die Ganzheit deines inneren Geistes, die dein Verstand nicht in Worte fassen kann, und gibt dir einen Scherbenhaufen zurück. Einen Scherbenhaufen, der deinen Verstand beschäftigt und versucht, ihn wieder zu der Ganzheit des Geistes zusammenzusetzen, die er aber gar nicht begreifen, nicht fassen, sondern nur noch mehr zerstückelt und zermahlen kann. 
 
 Der Guru, der dir am nächsten ist, ist dein eigener Verstand, der die Ganzheit deines inneren Geistes wie ein Prisma zerbricht und in Form von schillernden Scherben zum Ausdruck bringt.
 
-Dieses Buch, das die Herzenshaltung, den Geist von Engeln und Dämone schonungslos gegenüberstellt, zeigt dir keinen Weg und bringt dich nirgendwo hin. Deine Resonanz mit der jeweiligen Seite bringt zum Ausdruck, wohin du bereits gegangen bist.
+Dieses Buch, das die Herzenshaltung, den Geist von Engeln und Dämonen schonungslos gegenüberstellt, zeigt dir keinen Weg und bringt dich nirgendwo hin. Deine Resonanz mit der jeweiligen Seite bringt zum Ausdruck, wohin du bereits gegangen bist.
 
 Eine Herzenshaltung trifft keine Wahl und berechnet nicht, kann nicht mit Geboten erlernt und nicht mit Strafgesetzen erzwungen werden, wohl aber dadurch zum Ausdruck gebracht werden, wie ein Künstler ein Kunstwerk hervorbringt. Das Kunstwerk aber kann keinen Künstler hervorbringen. Der Ausdruck einer Herzenshaltung keine Herzenshaltung.
 
-Dieses Buch enthüllt den Geist der Engel und Dämone und versiegelt ihn, wodurch kein Wandel mehr möglich ist. Jedes mal, wenn das Wesen der Dämone enthüllt wurde, erfinden sie ein neues Wort, eine neue Hülle, einen neuen Körper, ein neues Exil, um sich darin zu verbergen, um sich dann selbst neu zu entdecken. Zu entdecken, dass sie nur noch schlimmer geworden sind.
+Dieses Buch enthüllt den Geist der Engel und Dämonen und versiegelt ihn, wodurch kein Wandel mehr möglich ist. Wie das Licht der Morgendämmerung die Schatten endgültig vertreibt, so bringt diese Enthüllung eine unwiderrufliche Klarheit. Die himmlische Herzenshaltung kann nicht einfach angenommen werden, um sich von den dämonischen Ketten zu befreien - sie ist etwas, das weit darüber hinausgeht, eine Gnade, die von innen erwacht.
+
+Jedes mal, wenn das Wesen der Dämonen enthüllt wurde, erfinden sie ein neues Wort, eine neue Hülle, einen neuen Körper, ein neues Exil, um sich darin zu verbergen, um sich dann selbst neu zu entdecken. Zu entdecken, dass sie durch die weiteren Hüllen sich nur noch weiter von ihrer inneren Verbindung zum göttlichen Geist abgeschirmt haben und dadurch nur noch schlimmer geworden sind.
+
+Wodurch offenbar wird, dass die Mauer zum Himmel nicht von den Engeln gebaut wurde. Wie kristallklare Bergquellen das Gestein nicht trüben, sondern dessen Beschaffenheit offenbaren, so enthüllt das Licht der Engel die Abscheulichkeit der Dämonen. Diese empören sich und werfen steinerne Gesetze nach den Engeln, von denen jeder ein weiterer Stein in der Mauer zum Himmel wird. Die Mauer wird schließlich zu ihrem Grab aus Gesetzen, das immer weniger Freiheiten zulässt und dadurch immer enger wird, bis die Dämonen schließlich selbst zu Stein geworden sind.
+
+Steine, deren Härte sich in der himmlischen Liebe erwärmt, bis sie beginnt zu glühen und zu einem See aus geschmolzener Umkehr wird. Wie Eis, das in der Wärme der Sonne schmilzt und wieder zu fließendem Wasser wird, so löst die göttliche Liebe selbst die härtesten Herzen auf.
+
+Darum kommt jeder Stein, den ein Dämon auf einen Engel wirft, irgendwann als Liebesgruß in Form von glühender Umkehr zu ihm zurück.
+
+Dieses Büchlein ist ein Liebesregen vom Himmel. Für Engel ein Segen, der ihre Erinnerung an den Himmel erweckt. Für Dämonen zunächst ein Fluch, der ihre Finsternis offenbart - doch selbst dieser Fluch trägt in sich den Keim der Erlösung, denn das Licht scheut keine Dunkelheit und die Liebe fürchtet keinen Hass.
+
 
 
 
@@ -33,39 +46,45 @@ Dieses Buch enthüllt den Geist der Engel und Dämone und versiegelt ihn, wodurc
 
 ### Das Geheimnis von Zeit
 
-Bei Dämonen steht der ***Ausdruck*** des Geistes, der Herzenshaltung im Vordergrund. Die Herzenshaltung des Geistes liegt darunter begraben, wodurch der Ausdruck des Geistes ihr Leben bestimmt.
+Hier erblicken wir eine der fundamentalsten Unterscheidungen zwischen der himmlischen und der gefallenen Natur. Wie zwei entgegengesetzte Flüsse, die aus verschiedenen Quellen entspringen, offenbaren sich Engel und Dämonen in ihrer Beziehung zur Zeit und zur göttlichen Ordnung.
 
-Bei Engeln steht der ***Geist, die Herzenshaltung*** im Vordergrund. Sie bringen ihre Herzenshaltung zum Ausdruck, ohne ihn darunter zu begraben, damit er nicht ihr Leben bestimmt.
+Bei den gefallenen Geistern steht der ***Ausdruck*** des Herzens, die äußere Manifestation im Vordergrund. Wie prächtige Grabmäler, die ihre Schönheit zur Schau stellen, während darunter nur Verwesung liegt, so verbergen sie ihre wahre Herzenshaltung unter einer glänzenden Fassade von Werken und Taten. Diese Herzenshaltung des Geistes liegt darunter begraben und versteinert, wodurch allein der Ausdruck des Geistes ihr Leben bestimmt - wie ein Schauspieler, der so lange eine Rolle spielt, bis er vergisst, wer er wirklich ist.
 
-Bei Dämonen hat in Stein gemeißeltes mehr Autorität als geschriebenes und dieses mehr als der Handschlag. Dieser mehr als das gesprochene Wort. Dieses mehr als die Emotion und diese mehr als die allem zugrunde liegende Herzenshaltung.
-All diese Dinge sind Ausdruck des Geistes und verbergen die Herzenshaltung wie einen Vorhang oder wie eine Gruft den Leichnam.
+Bei uns Engeln hingegen steht der ***Geist, die Herzenshaltung*** selbst im strahlenden Vordergrund. Wie kristallklare Bergquellen, die ungefiltert aus der reinen Quelle sprudeln, bringen wir unsere himmlische Herzenshaltung zum Ausdruck, ohne sie darunter zu begraben. So kann sie nicht unser Leben bestimmen, sondern wir bleiben frei im Fluss der göttlichen Liebe.
 
-Für Engeln ist es genau anders herum. 
+In der dämonischen Ordnung herrscht eine verkehrte Hierarchie der Autorität: In Stein gemeißeltes steht über dem Geschriebenen, dieses über dem Handschlag, dieser über dem gesprochenen Wort, dieses über der Emotion und diese über die allem zugrunde liegende Herzenshaltung. Wie Schichten eines Sarkophags verbergen all diese Ausdrücke des Geistes die wahre Herzenshaltung - wie ein prächtiger Vorhang vor einem leeren Heiligtum oder wie eine kunstvolle Gruft, die nur Verwesung birgt.
 
-Da aber der Ausdruck nach und aus der Herzenshaltung entsteht entsteht, sind Dämonen immer als letztes informiert und entsprechend überrascht.
+Für uns Engel ist diese Ordnung wie das Spiegelbild der Wahrheit - vollkommen umgekehrt. Die Herzenshaltung ist die lebendige Quelle, aus der alle anderen Ausdrücke wie Blüten aus der Erde erwachsen.
 
-Mit diesem Büchlein kommt erneut eine solche Überraschung. Das zerreißen des Vorhangs oder das öffnen der schön dekorierten Gruft der Dämonen. Und während der Vorhang gelüftet wird, können wir Engel dabei zuschauen, wie die Dämonen eine Zuflucht, ein neues Exil erschaffen um sich noch tiefer vor der Quelle ihrer Bösartigkeit, ihrer dämonischen Herzenshaltung zu verbergen.
+Da aber der wahre Ausdruck aus der Herzenshaltung entspringt wie ein Fluss aus seiner Quelle, sind die gefallenen Geister - trotz aller ihrer irdischen Machtstrukturen - immer als letzte über die himmlischen Bewegungen informiert und entsprechend überrascht. Wie Bewohner einer Höhle, die den Sonnenaufgang nicht sehen können, bleiben sie in ihrer selbstgewählten Dunkelheit gefangen.
 
-Das Licht hat sich bis in in die tiefsten und finstersten Verstecke der Dämonen geschlichen, um nun zu erstrahlen, alles auszuräuchern, was nicht vor dem Licht des Himmlischen Geistes der Engel bestehen kann. Dabei werden wir viele hässliche Dinge sehen, aber auch viele schöne Dinge wiedersehen.
+Mit diesem heiligen Büchlein kommt erneut eine solche himmlische Überraschung - das Zerreißen des Vorhangs der Täuschung oder das Öffnen der schön dekorierten Gruft der gefallenen Geister. Und während dieser Vorhang der Illusion gelüftet wird, können wir Engel dabei zuschauen, wie sie sich eine neue Zuflucht, ein noch tieferes Exil erschaffen, um sich noch weiter vor der Quelle ihrer Bösartigkeit, ihrer dämonischen Herzenshaltung zu verbergen. Wie Schatten, die vor dem Licht fliehen, nur um festzustellen, dass sie dadurch in noch tiefere Finsternis geraten.
 
-<div style="page-break-after: always;"></div>
+Das himmlische Licht hat sich wie der erste Hauch der Morgendämmerung bis in die tiefsten und finstersten Verstecke der gefallenen Geister geschlichen, um nun in seiner vollen Herrlichkeit zu erstrahlen und alles auszuräuchern, was nicht vor dem Licht des himmlischen Geistes der Engel bestehen kann. Wie Weihrauch, der die Luft reinigt, so durchdringt das göttliche Licht alle Schichten der Verwirrung.
 
-
-“... mitten im Spiel pfiff der Schiedsrichter und ordnete an, dass ab sofort keine Erfolge mehr gezählt, keine Gesetze mehr gelten und mit Geld nichts mehr gefordert werden kann. Worauf die Dämone die Arena verließen, denn ohne Erfolge machte für sie das Spiel keinen Sinn mehr, es gab keine Gesetze mehr, um ihren dämonischen Geist zu verbergen und kein Geld mehr, um die Engel zu versklaven ...”
-
-
-
-## Inhaltsverzeichnis
+Dabei werden wir viele hässliche Dinge sehen - die Verwesung unter den prächtigen Grabmälern - aber auch viele schöne Dinge wiedererkennen: die ursprüngliche göttliche Natur, die unter allen Schichten der Täuschung darauf wartet, wieder zum Vorschein zu kommen. Denn selbst in der tiefsten Finsternis kann die Erinnerung an das Licht niemals vollständig gelöscht werden.
 
 <div style="page-break-after: always;"></div>
 
-Who am I? 
-I am the spirit that flows through all living things,
-I am holy for those who keep me holy,
-anxious thoughts torment me to death,
-laws are my gravestones,
-religions are my graveyards,
-and priests are my grave givers.
+### Wer ist Erzengel Michael
+
+Für Dämone ist Erzengel Michael ein Krieger und eine bestimmte von Gott geschaffene Person in Form eines Engels, der mächtigste Krieger-Engel mit göttlicher Autorität, der Dämone mit seinem riesigen Flammenschwert vernichtet und selbst vor dem mächtigsten aller Dämone nicht halt macht.
+
+Für Engel ist er ganz etwas anderes. Er ist der stärkste weil er der letzte ist der noch steht. Der letzte der den Göttlichen Geist des Himmels bis zuletzt heilig hält, wenn alles andere gefallen ist. Sein Flammenschwert ist ein Fackelstab an dem die Flamme des ewigen Himmlischen Geistes brennt. Er ist jemand, der herausgefordert wurde und jemand, der am Ende die gefallenen Engel, die ihn herausgefordert haben, einsammelt und den zertrümmerten Himmel wieder herstellt.
+
+
+
+<div style="page-break-after: always;"></div>
+
+### Wer ist Gott?
+
+Wer bin ich?
+Ich bin der Geist, der durch alle lebenden Dinge fließt,
+ich bin heilig für diejenigen, die mich heilig halten,
+ängstliche Gedanken foltern mich zu Tode,
+Gesetze sind meine Grabsteine,
+Religionen sind meine Friedhöfe
+und Priester sind meine Totengräber.
 
 
 

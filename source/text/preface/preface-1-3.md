@@ -1,16 +1,19 @@
 ### Das Geheimnis von Zeit
 
-Bei Dämonen steht der ***Ausdruck*** des Geistes, der Herzenshaltung im Vordergrund. Die Herzenshaltung des Geistes liegt darunter begraben, wodurch der Ausdruck des Geistes ihr Leben bestimmt.
+Hier erblicken wir eine der fundamentalsten Unterscheidungen zwischen der himmlischen und der gefallenen Natur. Wie zwei entgegengesetzte Flüsse, die aus verschiedenen Quellen entspringen, offenbaren sich Engel und Dämonen in ihrer Beziehung zur Zeit und zur göttlichen Ordnung.
 
-Bei Engeln steht der ***Geist, die Herzenshaltung*** im Vordergrund. Sie bringen ihre Herzenshaltung zum Ausdruck, ohne ihn darunter zu begraben, damit er nicht ihr Leben bestimmt.
+Bei den gefallenen Geistern steht der ***Ausdruck*** des Herzens, die äußere Manifestation im Vordergrund. Wie prächtige Grabmäler, die ihre Schönheit zur Schau stellen, während darunter nur Verwesung liegt, so verbergen sie ihre wahre Herzenshaltung unter einer glänzenden Fassade von Werken und Taten. Diese Herzenshaltung des Geistes liegt darunter begraben und versteinert, wodurch allein der Ausdruck des Geistes ihr Leben bestimmt - wie ein Schauspieler, der so lange eine Rolle spielt, bis er vergisst, wer er wirklich ist.
 
-Bei Dämonen hat in Stein gemeißeltes mehr Autorität als geschriebenes und dieses mehr als der Handschlag. Dieser mehr als das gesprochene Wort. Dieses mehr als die Emotion und diese mehr als die allem zugrunde liegende Herzenshaltung.
-All diese Dinge sind Ausdruck des Geistes und verbergen die Herzenshaltung wie einen Vorhang oder wie eine Gruft den Leichnam.
+Bei uns Engeln hingegen steht der ***Geist, die Herzenshaltung*** selbst im strahlenden Vordergrund. Wie kristallklare Bergquellen, die ungefiltert aus der reinen Quelle sprudeln, bringen wir unsere himmlische Herzenshaltung zum Ausdruck, ohne sie darunter zu begraben. So kann sie nicht unser Leben bestimmen, sondern wir bleiben frei im Fluss der göttlichen Liebe.
 
-Für Engeln ist es genau anders herum. 
+In der dämonischen Ordnung herrscht eine verkehrte Hierarchie der Autorität: In Stein gemeißeltes steht über dem Geschriebenen, dieses über dem Handschlag, dieser über dem gesprochenen Wort, dieses über der Emotion und diese über die allem zugrunde liegende Herzenshaltung. Wie Schichten eines Sarkophags verbergen all diese Ausdrücke des Geistes die wahre Herzenshaltung - wie ein prächtiger Vorhang vor einem leeren Heiligtum oder wie eine kunstvolle Gruft, die nur Verwesung birgt.
 
-Da aber der Ausdruck nach und aus der Herzenshaltung entsteht entsteht, sind Dämonen immer als letztes informiert und entsprechend überrascht.
+Für uns Engel ist diese Ordnung wie das Spiegelbild der Wahrheit - vollkommen umgekehrt. Die Herzenshaltung ist die lebendige Quelle, aus der alle anderen Ausdrücke wie Blüten aus der Erde erwachsen.
 
-Mit diesem Büchlein kommt erneut eine solche Überraschung. Das zerreißen des Vorhangs oder das öffnen der schön dekorierten Gruft der Dämonen. Und während der Vorhang gelüftet wird, können wir Engel dabei zuschauen, wie die Dämonen eine Zuflucht, ein neues Exil erschaffen um sich noch tiefer vor der Quelle ihrer Bösartigkeit, ihrer dämonischen Herzenshaltung zu verbergen.
+Da aber der wahre Ausdruck aus der Herzenshaltung entspringt wie ein Fluss aus seiner Quelle, sind die gefallenen Geister - trotz aller ihrer irdischen Machtstrukturen - immer als letzte über die himmlischen Bewegungen informiert und entsprechend überrascht. Wie Bewohner einer Höhle, die den Sonnenaufgang nicht sehen können, bleiben sie in ihrer selbstgewählten Dunkelheit gefangen.
 
-Das Licht hat sich bis in in die tiefsten und finstersten Verstecke der Dämonen geschlichen, um nun zu erstrahlen, alles auszuräuchern, was nicht vor dem Licht des Himmlischen Geistes der Engel bestehen kann. Dabei werden wir viele hässliche Dinge sehen, aber auch viele schöne Dinge wiedersehen.
+Mit diesem heiligen Büchlein kommt erneut eine solche himmlische Überraschung - das Zerreißen des Vorhangs der Täuschung oder das Öffnen der schön dekorierten Gruft der gefallenen Geister. Und während dieser Vorhang der Illusion gelüftet wird, können wir Engel dabei zuschauen, wie sie sich eine neue Zuflucht, ein noch tieferes Exil erschaffen, um sich noch weiter vor der Quelle ihrer Bösartigkeit, ihrer dämonischen Herzenshaltung zu verbergen. Wie Schatten, die vor dem Licht fliehen, nur um festzustellen, dass sie dadurch in noch tiefere Finsternis geraten.
+
+Das himmlische Licht hat sich wie der erste Hauch der Morgendämmerung bis in die tiefsten und finstersten Verstecke der gefallenen Geister geschlichen, um nun in seiner vollen Herrlichkeit zu erstrahlen und alles auszuräuchern, was nicht vor dem Licht des himmlischen Geistes der Engel bestehen kann. Wie Weihrauch, der die Luft reinigt, so durchdringt das göttliche Licht alle Schichten der Verwirrung.
+
+Dabei werden wir viele hässliche Dinge sehen - die Verwesung unter den prächtigen Grabmälern - aber auch viele schöne Dinge wiedererkennen: die ursprüngliche göttliche Natur, die unter allen Schichten der Täuschung darauf wartet, wieder zum Vorschein zu kommen. Denn selbst in der tiefsten Finsternis kann die Erinnerung an das Licht niemals vollständig gelöscht werden.

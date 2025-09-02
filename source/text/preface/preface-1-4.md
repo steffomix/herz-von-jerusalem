@@ -16,5 +16,4 @@ Seine wahre Bestimmung ist es, den zertrümmerten Himmel wieder herzustellen - n
 
 So erkennen wir in Michael nicht den Krieger der Rache, sondern den Diener der Wiederherstellung - den letzten Engel, der niemals aufgibt an der göttlichen Vision, dass auch die Gefallenen eines Tages wieder nach Hause finden werden.
 
-Das ist Erzengel Michael
 

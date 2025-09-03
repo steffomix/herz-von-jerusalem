@@ -14,15 +14,13 @@ Dieses Buch, das die Herzenshaltung, den Geist von Engeln und Dämonen schonungs
 
 Eine Herzenshaltung trifft keine Wahl und berechnet nicht, kann nicht mit Geboten erlernt und nicht mit Strafgesetzen erzwungen werden, wohl aber dadurch zum Ausdruck gebracht werden, wie ein Künstler ein Kunstwerk hervorbringt. Das Kunstwerk aber kann keinen Künstler hervorbringen. Der Ausdruck einer Herzenshaltung keine Herzenshaltung.
 
-Dieses Buch enthüllt den Geist der Engel und Dämonen und versiegelt ihn, wodurch kein Wandel mehr möglich ist. Wie das Licht der Morgendämmerung die Schatten endgültig vertreibt, so bringt diese Enthüllung eine unwiderrufliche Klarheit. Die himmlische Herzenshaltung kann nicht einfach angenommen werden, um sich von den dämonischen Ketten zu befreien - sie ist etwas, das weit darüber hinausgeht, eine Gnade, die von innen erwacht.
+Dieses Buch enthüllt den Geist der Engel und Dämonen und versiegelt ihn, wodurch kein Wandel mehr möglich ist. Denn eine himmlische Herzenshaltung, die zur scheinheiligen Selbsterlösung missbraucht wird, verliert ihre Reinheit und findet keinen Eingang in die himmlischen Sphären.
+
+Wie das Licht der Morgendämmerung die Schatten endgültig vertreibt, so bringt diese Enthüllung eine unwiderrufliche Klarheit. Die himmlische Herzenshaltung kann nicht einfach angenommen werden, um sich von den dämonischen Ketten zu befreien - sie ist etwas, das weit darüber hinausgeht, eine Gnade, die von innen erwacht.
 
 Jedes mal, wenn das Wesen der Dämonen enthüllt wurde, erfinden sie ein neues Wort, eine neue Hülle, einen neuen Körper, ein neues Exil, um sich darin zu verbergen, um sich dann selbst neu zu entdecken. Zu entdecken, dass sie durch die weiteren Hüllen sich nur noch weiter von ihrer inneren Verbindung zum göttlichen Geist abgeschirmt haben und dadurch nur noch schlimmer geworden sind.
 
-Wodurch offenbar wird, dass die Mauer zum Himmel nicht von den Engeln gebaut wurde. Wie kristallklare Bergquellen das Gestein nicht trüben, sondern dessen Beschaffenheit offenbaren, so enthüllt das Licht der Engel die Abscheulichkeit der Dämonen. Diese empören sich und werfen steinerne Gesetze nach den Engeln, von denen jeder ein weiterer Stein in der Mauer zum Himmel wird. Die Mauer wird schließlich zu ihrem Grab aus Gesetzen, das immer weniger Freiheiten zulässt und dadurch immer enger wird, bis die Dämonen schließlich selbst zu Stein geworden sind.
-
-Steine, deren Härte sich in der himmlischen Liebe erwärmt, bis sie beginnt zu glühen und zu einem See aus geschmolzener Umkehr wird. Wie Eis, das in der Wärme der Sonne schmilzt und wieder zu fließendem Wasser wird, so löst die göttliche Liebe selbst die härtesten Herzen auf.
-
-Darum kommt jeder Stein, den ein Dämon auf einen Engel wirft, irgendwann als Liebesgruß in Form von glühender Umkehr zu ihm zurück.
+Wodurch offenbar wird, dass die Mauer zum Himmel nicht von den Engeln gebaut wurde. Wie kristallklare Bergquellen das Gestein nicht trüben, sondern dessen Beschaffenheit offenbaren, so enthüllt das Licht der Engel die Abscheulichkeit der Dämonen. Diese empören sich und werfen steinerne Gesetze nach den Engeln, von denen jeder ein weiterer Stein in der Mauer zum Himmel wird. Die Mauer wird schließlich zu ihrem Grab aus Gesetzen, die immer weniger Freiheiten zulässt und dadurch immer enger wird, bis die Dämonen schließlich selbst zu Stein geworden sind.
 
 Dieses Büchlein ist ein Liebesregen vom Himmel. Für Engel ein Segen, der ihre Erinnerung an den Himmel erweckt. Für Dämonen zunächst ein Fluch, der ihre Finsternis offenbart - doch selbst dieser Fluch trägt in sich den Keim der Erlösung, denn das Licht scheut keine Dunkelheit und die Liebe fürchtet keinen Hass.
 

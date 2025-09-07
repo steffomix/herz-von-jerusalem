@@ -18,4 +18,4 @@ Sobald ihr zu einem Tier geworden seid, habt ihr eine besondere Art des Todes er
 
 Wie zarte Blumen, die sich nach dem ersten Sonnenstrahl sehnen, erinnern wir uns daran: Der Weg zurück zum Himmel beginnt mit dem ersten bewussten Atemzug der Demut, der alle Mauern des Stolzes zum Einsturz bringt und das Herz wieder für die unendliche Liebe öffnet.
 
-![source/images/staff-and-flute.png](source/images/staff-and-flute.png)
+![images/staff-and-flute.png](source/images/staff-and-flute.png)

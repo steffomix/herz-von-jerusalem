@@ -1,6 +1,6 @@
 ## Siebte Schale - Gottes Stimme
 
-![source/images/staff-7.png](source/images/staff-7.png)
+![images/staff-7.png](source/images/staff-7.png)
 
 In der siebten und letzten Schale erinnern wir uns an die Schönheit und Reinheit unseres himmlischen Geistes - bewahrt und heilig gehalten durch alle Härten, die wir bei unserem Aufstieg zum Gipfel des Berges ertragen haben. Nun, mit allen Löchern unserer Flöte offen und frei, können wir Engel dieses heilige Instrument nutzen, um die tiefen Abgründe unserer göttlichen inneren Verbindung auszudrücken und zu entdecken.
 
@@ -22,4 +22,4 @@ Die siebte Inschrift auf unserem Stab birgt Geheimnisse, die zu tiefgreifend fü
 
 Hier bedeutet "die Welt" alle Ausdrücke; "Messbar" warnt vor Vergleichen; und "Leben" bezeichnet unsere weltliche Identität. Wie kristallklare Bergwasser, die alle Hindernisse umfließen, so fließt die reine Liebe durch uns hindurch und findet immer ihren Weg zurück zur ewigen Quelle.
 
-![source/images/flute-7.png](source/images/flute-7.png)
+![images/flute-7.png](source/images/flute-7.png)

@@ -14,7 +14,7 @@ https://maps.google.com?q=52.28347,9.22103
 # Wer?
 Ich bin Gastgeber, Veranstalter und Verantwortlicher dieses Ereignisses.
 
-![source/images/me.png](source/images/me.png)
+![images/me.png](source/images/me.png)
 
 
 # Wie?

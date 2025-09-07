@@ -1,6 +1,6 @@
 ## Vierte Schale: Anmut
 
-![source/images/staff-4.png](source/images/staff-4.png)
+![images/staff-4.png](source/images/staff-4.png)
 
 Mit der vierten Schale verwandelt sich unser Stab in eine Blume, und wir finden die Worte: "Versuche immer gnädig zu sein, auch wo du dein Herz verschließen willst.".
 
@@ -16,4 +16,4 @@ Sich zu öffnen und unsere himmlische Schönheit in einer dämonischen Umgebung 
 
 Nur die Stärksten, Zähesten und jene mit außergewöhnlichen Heilfähigkeiten können dies ertragen und vorwärtsgehen, um sich noch größeren Herausforderungen zu stellen. Wie zarte Blumen, die durch Risse im Beton wachsen, finden wir Engel einen Weg, unsere Schönheit selbst in den widrigsten Umständen zu entfalten.
 
-![source/images/flute-4.png](source/images/flute-4.png)
+![images/flute-4.png](source/images/flute-4.png)

@@ -1,6 +1,6 @@
 ## Erste Schale: Dienende Haltung
 
-![source/images/staff-1.png](source/images/staff-1.png)
+![images/staff-1.png](source/images/staff-1.png)
 
 Lasst uns mit der ersten der sieben Schalen beginnen - der grundlegenden Absicht. Es geht darum, eine Entscheidung zu treffen: Werden wir eine demütige Haltung des Dienens annehmen, oder werden wir zu dominieren und zu herrschen suchen?
 
@@ -18,4 +18,4 @@ Das geschieht, wenn wir versuchen, himmlisches Wasser in einen mit dämonischem 
 
 Versucht nicht, den himmlischen Geist mit alten, gefallenen Wegen zu vermischen - es wird die Dinge nur schlimmer machen. Nur mit einem reinen und offenen Herzen können wir wahrhaft das Licht des Himmels empfangen und den Pfad des Dienens wandeln, der uns nach Hause führt.
 
-![source/images/flute-1.png](source/images/flute-1.png)
+![images/flute-1.png](source/images/flute-1.png)

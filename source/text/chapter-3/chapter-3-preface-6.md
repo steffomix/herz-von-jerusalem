@@ -1,6 +1,6 @@
 # In Erwartung des Herrn des Himmels
 
-![source/images/chef-angel.png](source/images/chef-angel.png)
+![images/chef-angel.png](source/images/chef-angel.png)
 
 Liebe fängt genau dort an
 wo die Erwartung aufhört

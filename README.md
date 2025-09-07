@@ -1,6 +1,6 @@
 # Das Herz von Jerusalem
 
-![source/images/blossom-crown.png](source/images/blossom-crown.png)
+![de/images/blossom-crown.png](de/images/blossom-crown.png)
 
 
 Wie eine Glocke klingt
@@ -208,7 +208,7 @@ Diese Reise wird intensiv sein - hell, heiß und tiefgreifend. Für jene, die de
 
 Also bereitet eure Herzen vor, denn das Licht ist dabei, heller zu strahlen als jemals zuvor.
 
-![source/images/staff-and-flute.png](source/images/staff-and-flute.png)
+![de/images/staff-and-flute.png](de/images/staff-and-flute.png)
 
 
 <div style="page-break-after: always;"></div>
@@ -225,7 +225,7 @@ Also bereitet eure Herzen vor, liebe Engel, denn es gibt viel zu vergeben, viel 
 
 ## Erste Schale: Dienende Haltung
 
-![source/images/staff-1.png](source/images/staff-1.png)
+![de/images/staff-1.png](de/images/staff-1.png)
 
 Lasst uns mit der ersten der sieben Schalen beginnen - der grundlegenden Absicht. Es geht darum, eine Entscheidung zu treffen: Werden wir eine demütige Haltung des Dienens annehmen, oder werden wir zu dominieren und zu herrschen suchen?
 
@@ -243,14 +243,14 @@ Das geschieht, wenn wir versuchen, himmlisches Wasser in einen mit dämonischem 
 
 Versucht nicht, den himmlischen Geist mit alten, gefallenen Wegen zu vermischen - es wird die Dinge nur schlimmer machen. Nur mit einem reinen und offenen Herzen können wir wahrhaft das Licht des Himmels empfangen und den Pfad des Dienens wandeln, der uns nach Hause führt.
 
-![source/images/flute-1.png](source/images/flute-1.png)
+![de/images/flute-1.png](de/images/flute-1.png)
 
 
 <div style="page-break-after: always;"></div>
 
 ## Zweite Schale: Demut
 
-![source/images/staff-2.png](source/images/staff-2.png)
+![de/images/staff-2.png](de/images/staff-2.png)
 
 Weiter zur zweiten Schale der Erdung durch Demut. Auf dem Stab ist es der zweite Vers, oder der erste Vers am zweiten Tag, und er lautet: "Versuche immer, der Geringste zu sein.". Auf unserer Flöte ist es das erste Loch für den tiefsten Ton.
 
@@ -262,14 +262,14 @@ Für die Gefallenen hingegen, die die verführerische Größe des Himmels absorb
 
 Und nichts erfüllt einen ehrenhaften Gefallenen mit mehr Stolz und macht ihn reicher und mächtiger, als über pflichtbewusste, demütige Engel zu herrschen. Wie Blumen, die ihre Kraft aus den tiefen Wurzeln der Erde ziehen, so schöpfen wir Engel unsere wahre Stärke aus der Demut - jener stillen Kraft, die uns mit der unendlichen Quelle allen Seins verbindet.
 
-![source/images/flute-2.png](source/images/flute-2.png)
+![de/images/flute-2.png](de/images/flute-2.png)
 
 
 <div style="page-break-after: always;"></div>
 
 ## Dritte Schale: Vergebung
 
-![source/images/staff-3.png](source/images/staff-3.png)
+![de/images/staff-3.png](de/images/staff-3.png)
 
 Vergebung ist wie das Licht für uns Engel. Sie hilft uns zu sehen, macht den Weg frei und erlaubt es dem himmlischen Geist, seine Schönheit zu entfalten. Auf unserer Flöte ist sie das zweite Loch. Auf unserem Stab ist sie der dritte Satz, wo der Text nicht mehr gerade nach oben verläuft, sondern sich zu winden beginnt wie eine feurige Schlange, die sich um einen Ast windet. Und er lautet: "Versuche immer zu vergeben, wo du urteilen willst.".
 
@@ -287,14 +287,14 @@ Einmal in die dämonische Kloake gefallen, die die Realität verzerrt, wird die 
 
 Aber in Wahrheit sind sie nichts als wunderschön dekorierte Gräber, die von innen heraus verrotten. Und während ihr Verfall durch ihre polierten Fassaden sickert, werden ihre Gesetze immer detaillierter, immer starrer. Am Ende offenbaren all ihre Regeln und Bestrafungen nur ihre eigene Erbärmlichkeit.
 
-![source/images/flute-3.png](source/images/flute-3.png)
+![de/images/flute-3.png](de/images/flute-3.png)
 
 
 <div style="page-break-after: always;"></div>
 
 ## Vierte Schale: Anmut
 
-![source/images/staff-4.png](source/images/staff-4.png)
+![de/images/staff-4.png](de/images/staff-4.png)
 
 Mit der vierten Schale verwandelt sich unser Stab in eine Blume, und wir finden die Worte: "Versuche immer gnädig zu sein, auch wo du dein Herz verschließen willst.".
 
@@ -310,14 +310,14 @@ Sich zu öffnen und unsere himmlische Schönheit in einer dämonischen Umgebung 
 
 Nur die Stärksten, Zähesten und jene mit außergewöhnlichen Heilfähigkeiten können dies ertragen und vorwärtsgehen, um sich noch größeren Herausforderungen zu stellen. Wie zarte Blumen, die durch Risse im Beton wachsen, finden wir Engel einen Weg, unsere Schönheit selbst in den widrigsten Umständen zu entfalten.
 
-![source/images/flute-4.png](source/images/flute-4.png)
+![de/images/flute-4.png](de/images/flute-4.png)
 
 
 <div style="page-break-after: always;"></div>
 
 ## Fünfte Schale: Trotzdem lieben
 
-![source/images/staff-5.png](source/images/staff-5.png)
+![de/images/staff-5.png](de/images/staff-5.png)
 
 Lasst uns nun zur fünften Schale - der Schale des mutigen Bergsteigers - übergehen. Hier verwandelt sich unser Stab in einen Wanderstab, und wir finden die Worte: "Versuche immer zu lieben, wo keine Liebe ist.". Das erinnert uns daran, dass wenn das Leben leicht wird, wir wahrscheinlich auf dem falschen Weg sind und absteigen statt aufsteigen.
 
@@ -337,14 +337,14 @@ Mit jedem schwierigen Schritt, den wir den Berg von Gottes himmlischem Geist hin
 
 Aber je höher wir steigen, desto heller wird unser Licht und desto heißer unsere Liebe. Während sich die Schönheit des Himmels in ihrer Fülle offenbart, zeigen sich auch die Tiefen der Dunkelheit in der Realität der Gefallenen. Der Kontrast kann überwältigend sein - atemberaubende Offenbarungen verlangen oft eine Pause, einen Moment der Ruhe, um die Weite von Gottes Königreich zu verdauen und die Freiheit, die wir haben, seinen Geist anzunehmen oder abzulehnen, zusammen mit dem Leben und den Herausforderungen, die er bringt.
 
-![source/images/flute-5.png](source/images/flute-5.png)
+![de/images/flute-5.png](de/images/flute-5.png)
 
 
 <div style="page-break-after: always;"></div>
 
 ## Sechste Schale - Heiliger himmlischer Geist
 
-![source/images/staff-6.png](source/images/staff-6.png)
+![de/images/staff-6.png](de/images/staff-6.png)
 
 Mit dem fünften und letzten Loch unserer Flöte erinnern wir uns nicht nur an die Kraft der Liebe und was es bedeutet, wahrhaft zu lieben, sondern erkennen auch, dass Liebe unser wertvollster Schatz ist, der selbst den brillantesten Intellekt übertrifft.
 
@@ -368,14 +368,14 @@ Gefallene sind nur in den zwei Talenten eines Parasiten und eines Schmarotzers g
 
 Dieser Missbrauch des himmlischen Geistes macht die Gefallenen noch schlimmer, und wir Engel müssen der traurigen Wahrheit ins Auge sehen, dass wir nicht helfen können und ihnen den Rücken kehren müssen.
 
-![source/images/flute-6.png](source/images/flute-6.png)
+![de/images/flute-6.png](de/images/flute-6.png)
 
 
 <div style="page-break-after: always;"></div>
 
 ## Siebte Schale - Gottes Stimme
 
-![source/images/staff-7.png](source/images/staff-7.png)
+![de/images/staff-7.png](de/images/staff-7.png)
 
 In der siebten und letzten Schale erinnern wir uns an die Schönheit und Reinheit unseres himmlischen Geistes - bewahrt und heilig gehalten durch alle Härten, die wir bei unserem Aufstieg zum Gipfel des Berges ertragen haben. Nun, mit allen Löchern unserer Flöte offen und frei, können wir Engel dieses heilige Instrument nutzen, um die tiefen Abgründe unserer göttlichen inneren Verbindung auszudrücken und zu entdecken.
 
@@ -397,7 +397,7 @@ Die siebte Inschrift auf unserem Stab birgt Geheimnisse, die zu tiefgreifend fü
 
 Hier bedeutet "die Welt" alle Ausdrücke; "Messbar" warnt vor Vergleichen; und "Leben" bezeichnet unsere weltliche Identität. Wie kristallklare Bergwasser, die alle Hindernisse umfließen, so fließt die reine Liebe durch uns hindurch und findet immer ihren Weg zurück zur ewigen Quelle.
 
-![source/images/flute-7.png](source/images/flute-7.png)
+![de/images/flute-7.png](de/images/flute-7.png)
 
 
 <div style="page-break-after: always;"></div>
@@ -422,7 +422,7 @@ Sobald ihr zu einem Tier geworden seid, habt ihr eine besondere Art des Todes er
 
 Wie zarte Blumen, die sich nach dem ersten Sonnenstrahl sehnen, erinnern wir uns daran: Der Weg zurück zum Himmel beginnt mit dem ersten bewussten Atemzug der Demut, der alle Mauern des Stolzes zum Einsturz bringt und das Herz wieder für die unendliche Liebe öffnet.
 
-![source/images/staff-and-flute.png](source/images/staff-and-flute.png)
+![de/images/staff-and-flute.png](de/images/staff-and-flute.png)
 
 
 <div style="page-break-after: always;"></div>
@@ -585,52 +585,6 @@ Wir Engel jedoch kennen die wahre Ehe: Sie ist die spontane Vereinigung zweier H
 
 <div style="page-break-after: always;"></div>
 
-## Achtes göttliches Prinzip: "Du sollst nicht stehlen"
-
-Hier erblicken wir abermals ein dämonisches Meisterwerk der Realitätsverdrehung. Jesus sprach: "Der Splitter, den du in den Augen eines anderen siehst, ist immer ein Fragment der Balken, die du in deinen eigenen Augen hast." Die gefallenen Geister übernehmen niemals Verantwortung für ihre Handlungen und werden niemals akzeptieren, dass sie der Grund für einen Diebstahl sind.
-
-Die Erwartung einer Belohnung basierend auf Fähigkeiten, Grad oder Position ist bereits Diebstahl an der göttlichen Ordnung. Im Himmel engagiert sich jeder mit den Fähigkeiten, die er hat, ohne jegliche Erwartungen einer Belohnung. Erwartungen sind der Mangel an Vertrauen in den himmlischen Geist und die Furcht, die damit einhergeht.
-
-Und das Geld geht einen Schritt weiter: Es ist ein Ausdruck, ein Bildnis der Erwartung mit dem Zweck, den Mangel an Vertrauen zu verbergen und zu kompensieren. Es erschafft ein falsches Vertrauen, welches eine Lüge ist und das echte Vertrauen noch mehr zerbröseln lässt. Bis auch das Vertrauen in das Geld dahin ist. Dann braucht es eine weitere Kompensation wie Überwachung, dann Regierungen, Strafverfolgungsbeamte, Bestrafungen, Gefängnisse und so weiter. Kompensation über Kompensation, Lüge über Lüge über noch eine Lüge.
-
-Aber es hört hier nicht auf. Sobald der himmlische Geist unter einem erzwungenen Geldsystem begraben ist, wird auch der Dienst für Geld erzwungen und verwandelt jeden in dessen Sklaverei. Und die meisten seiner Sklaven haben keinen Stab - einen Ausdruck der Stärke meines himmlischen Geistes - wie ich, um durch alle seine Lügenschichten der Kompensation zu bohren. Die meisten von ihnen stoppen viel früher bei Dingen wie der Regierung und ihren Steuern, den Zahlungsregeln, dem Geldsystem und so weiter.
-
-Wir Engel jedoch leben in der himmlischen Ökonomie der Liebe: Jeder gibt das Seine aus Freude am Geben, und jeder empfängt, was er braucht, durch das Vertrauen in die göttliche Vorsehung. Wie die Lilien auf dem Felde arbeiten wir nicht um des Mammons willen, sondern blühen zur Ehre des Schöpfers.
-
-<div style="page-break-after: always;"></div>
-
-## Neuntes göttliches Prinzip: "Du sollst nicht lügen"
-
-Hier sprach Jesus abermals: "Der Splitter, den du in den Augen eines anderen siehst, ist immer ein Fragment der Balken, die du in deinen eigenen Augen hast."
-
-Während die Stärke der gefallenen Geister auf ihrer Macht basiert, gründet sich unsere engelhafte Stärke auf unsere Sanftmut. Der himmlische Geist der Engel ist so gütig und sanft, voller Mitgefühl und stets um Verständnis bemüht und daher vertrauenswürdig. Niemand muss Furcht haben, die Wahrheit zu sagen, daher gibt es keine Lügen im Himmel.
-
-Die Dämonen jedoch bekämpfen Lügen auf die entgegengesetzte Weise: mit Gekränktheit bis hin zur Wut und mit der Macht der Gesetze und der Drohung der Bestrafung. Wir Engel jedoch wissen, dass das Gekränktsein oder gar Wut die Drehpunkt ist, um die Schuld auf die andere Seite zu wenden, so dass man niemals einen Engel gekränkt oder gar wütend sehen wird.
-
-Wenn uns also jemand mit einer Lüge geschlagen hat, schlagen wir uns selbst nochmals mit der Frage, wie wir so weit vom himmlischen Geist abfallen konnten, dass wir unsere Vertrauenswürdigkeit verloren haben.
-
-Wie kristallklare Bergquellen sprudelt die Wahrheit natürlich aus engelshaften Herzen hervor. Wir brauchen keine Gesetze gegen die Lüge, denn wo Liebe und Vertrauen herrschen, da blüht die Wahrheit wie Blumen im Frühling. Unsere Wahrhaftigkeit ist nicht aus Furcht vor Strafe geboren, sondern aus der reinen Freude an der Klarheit des göttlichen Lichts, das durch uns strahlt.
-
-<div style="page-break-after: always;"></div>
-
-## Zehntes göttliches Prinzip: "Du sollst nicht begehren..."
-
-Dieses finale Prinzip enthüllt auf eindrucksvolle Weise die innere Leere der gefallenen Geister und ihre Definition des Selbstwertes an Dingen, die Engel hervorgebracht und zum Ausdruck gebracht haben. Sie können nichts aus sich selbst hervorbringen, weil im Inneren gähnende Leere herrscht. Dabei können diese begehrten Dinge alles sein - von einer zarten Idee bis zum vollendeten Kunstwerk. 
-
-Sie erfinden nichts Eigenes, sondern benutzen Anleitungen, die sie gekauft oder gestohlen haben. Sie arbeiten nicht wahrhaftig, sondern lassen für Geld arbeiten, während sie selbst in der spirituellen Ödnis verharren.
-
-Die gefallenen Geister sind nur in den zwei fragwürdigen Talenten eines Parasiten und eines Schmarotzers bewandert: Ein Parasit ist jemand, der in fremdes Eigentum eindringt oder es in Besitz nimmt und sich verhält, als würde es ihm gehören. Ein Schmarotzer ist jemand, der die maximal mögliche Belohnung für den minimal möglichen Aufwand erwartet - oder sogar fordert. 
-
-Und was beide gemeinsam haben, ist, dass sie ihre Größe daran messen, wie viele gehorsame Diener ihnen selbst bei den kleinsten Problemen zu Hilfe eilen. Je kleiner das Problem, umso besser - denn so können sie ihre eingebildete Wichtigkeit zur Schau stellen.
-
-Dieses Prinzip enthüllt von allen wohl am deutlichsten den Sinn dessen, was Jesus mit "fein dekorierten Gräbern" meinte, die im Innern voller verrottendem Totengebein sind.
-
-Wir Engel jedoch brauchen ein solches Verbot nicht, denn wir begehren nicht, was der andere hat, sondern freuen uns mit ihm an seiner himmlischen Gabe. Wie Blumen, die sich nicht um die Schönheit der Nachbarblüte sorgen, sondern alle zusammen einen prächtigen Garten bilden, so ergänzen wir uns in der göttlichen Symphonie des Seins. 
-
-Etwas, das die gefallenen Geister beim besten Willen nicht begreifen können - denn wo das Herz von Liebe erfüllt ist, da ist kein Raum für Neid oder Begierde. In der himmlischen Fülle gibt es genug für alle, und jeder trägt seine einzigartige Note zur kosmischen Harmonie bei.
-
-<div style="page-break-after: always;"></div>
-
 ## Die Versigelung
 
 Mit der offenlegung des himmlischen Geistes ist kein weiterer Zugang mehr möglich. Die Türen sind für immer verschlossen. Der himmlische Geist, die himmlische Herzenshaltung kann nicht nach Anleitung mit dem Verstand erlernt um dann wie etwas auswendig gelerntes simuliert zu werden. Er kann nur aus einem inneren Bedürfnis heraus erwachen und durch Herrausforderungen wachsen und stark werden. Er braucht keine Unterstützung um zu wachsen, sondern Gegner.
@@ -700,7 +654,7 @@ https://maps.google.com?q=52.28347,9.22103
 # Wer?
 Ich bin Gastgeber, Veranstalter und Verantwortlicher dieses Ereignisses.
 
-![source/images/me.png](source/images/me.png)
+![de/images/me.png](de/images/me.png)
 
 
 # Wie?
@@ -714,7 +668,7 @@ Ich kann nicht ewig warten. Meine und eure noch verfügbare Zeit ist sehr kurz b
 
 # In Erwartung des Herrn des Himmels
 
-![source/images/chef-angel.png](source/images/chef-angel.png)
+![de/images/chef-angel.png](de/images/chef-angel.png)
 
 Liebe fängt genau dort an
 wo die Erwartung aufhört

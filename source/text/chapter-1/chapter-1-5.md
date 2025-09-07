@@ -1,6 +1,6 @@
 ## Fünfte Schale: Trotzdem lieben
 
-![source/images/staff-5.png](source/images/staff-5.png)
+![images/staff-5.png](source/images/staff-5.png)
 
 Lasst uns nun zur fünften Schale - der Schale des mutigen Bergsteigers - übergehen. Hier verwandelt sich unser Stab in einen Wanderstab, und wir finden die Worte: "Versuche immer zu lieben, wo keine Liebe ist.". Das erinnert uns daran, dass wenn das Leben leicht wird, wir wahrscheinlich auf dem falschen Weg sind und absteigen statt aufsteigen.
 
@@ -20,4 +20,4 @@ Mit jedem schwierigen Schritt, den wir den Berg von Gottes himmlischem Geist hin
 
 Aber je höher wir steigen, desto heller wird unser Licht und desto heißer unsere Liebe. Während sich die Schönheit des Himmels in ihrer Fülle offenbart, zeigen sich auch die Tiefen der Dunkelheit in der Realität der Gefallenen. Der Kontrast kann überwältigend sein - atemberaubende Offenbarungen verlangen oft eine Pause, einen Moment der Ruhe, um die Weite von Gottes Königreich zu verdauen und die Freiheit, die wir haben, seinen Geist anzunehmen oder abzulehnen, zusammen mit dem Leben und den Herausforderungen, die er bringt.
 
-![source/images/flute-5.png](source/images/flute-5.png)
+![images/flute-5.png](source/images/flute-5.png)

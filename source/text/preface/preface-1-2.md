@@ -18,7 +18,7 @@ Dieses Buch enthüllt den Geist der Engel und Dämonen und versiegelt ihn, wodur
 
 Wie das Licht der Morgendämmerung die Schatten endgültig vertreibt, so bringt diese Enthüllung eine unwiderrufliche Klarheit. Die himmlische Herzenshaltung kann nicht einfach angenommen werden, um sich von den dämonischen Ketten zu befreien - sie ist etwas, das weit darüber hinausgeht, eine Gnade, die von innen erwacht.
 
-Jedoch, sobald das Wesen der Dämonen enthüllt wurde, erfinden sie ein neues Wort, eine neue Hülle, einen neuen Körper, ein neues Exil, um sich darin zu verbergen, um sich dann selbst neu zu entdecken. Zu entdecken, dass sie durch die weiteren Hüllen sich nur noch weiter von ihrer inneren Verbindung zum göttlichen Geist abgeschirmt haben und dadurch nur noch schlimmer geworden sind.
+Jedes mal, wenn das Wesen der Dämonen enthüllt wurde, erfinden sie ein neues Wort, eine neue Hülle, einen neuen Körper, ein neues Exil, um sich darin zu verbergen, um sich dann selbst neu zu entdecken. Zu entdecken, dass sie durch die weiteren Hüllen sich nur noch weiter von ihrer inneren Verbindung zum göttlichen Geist abgeschirmt haben und dadurch nur noch schlimmer geworden sind.
 
 Wodurch offenbar wird, dass die Mauer zum Himmel nicht von den Engeln gebaut wurde. Wie kristallklare Bergquellen das Gestein nicht trüben, sondern dessen Beschaffenheit offenbaren, so enthüllt das Licht der Engel die Abscheulichkeit der Dämonen. Diese empören sich und werfen steinerne Gesetze nach den Engeln, von denen jeder ein weiterer Stein in der Mauer zum Himmel wird. Die Mauer wird schließlich zu ihrem Grab aus Gesetzen, die immer weniger Freiheiten zulässt und dadurch immer enger wird, bis die Dämonen schließlich selbst zu Stein geworden sind.
 

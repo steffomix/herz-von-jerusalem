@@ -18,4 +18,4 @@ Diese Reise wird intensiv sein - hell, heiß und tiefgreifend. Für jene, die de
 
 Also bereitet eure Herzen vor, denn das Licht ist dabei, heller zu strahlen als jemals zuvor.
 
-![source/images/staff-and-flute.png](source/images/staff-and-flute.png)
+![images/staff-and-flute.png](source/images/staff-and-flute.png)

@@ -1,6 +1,6 @@
 ## Dritte Schale: Vergebung
 
-![source/images/staff-3.png](source/images/staff-3.png)
+![images/staff-3.png](source/images/staff-3.png)
 
 Vergebung ist wie das Licht für uns Engel. Sie hilft uns zu sehen, macht den Weg frei und erlaubt es dem himmlischen Geist, seine Schönheit zu entfalten. Auf unserer Flöte ist sie das zweite Loch. Auf unserem Stab ist sie der dritte Satz, wo der Text nicht mehr gerade nach oben verläuft, sondern sich zu winden beginnt wie eine feurige Schlange, die sich um einen Ast windet. Und er lautet: "Versuche immer zu vergeben, wo du urteilen willst.".
 
@@ -18,4 +18,4 @@ Einmal in die dämonische Kloake gefallen, die die Realität verzerrt, wird die 
 
 Aber in Wahrheit sind sie nichts als wunderschön dekorierte Gräber, die von innen heraus verrotten. Und während ihr Verfall durch ihre polierten Fassaden sickert, werden ihre Gesetze immer detaillierter, immer starrer. Am Ende offenbaren all ihre Regeln und Bestrafungen nur ihre eigene Erbärmlichkeit.
 
-![source/images/flute-3.png](source/images/flute-3.png)
+![images/flute-3.png](source/images/flute-3.png)

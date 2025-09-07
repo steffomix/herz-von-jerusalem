@@ -1,6 +1,6 @@
 ## Zweite Schale: Demut
 
-![source/images/staff-2.png](source/images/staff-2.png)
+![images/staff-2.png](source/images/staff-2.png)
 
 Weiter zur zweiten Schale der Erdung durch Demut. Auf dem Stab ist es der zweite Vers, oder der erste Vers am zweiten Tag, und er lautet: "Versuche immer, der Geringste zu sein.". Auf unserer Flöte ist es das erste Loch für den tiefsten Ton.
 
@@ -12,4 +12,4 @@ Für die Gefallenen hingegen, die die verführerische Größe des Himmels absorb
 
 Und nichts erfüllt einen ehrenhaften Gefallenen mit mehr Stolz und macht ihn reicher und mächtiger, als über pflichtbewusste, demütige Engel zu herrschen. Wie Blumen, die ihre Kraft aus den tiefen Wurzeln der Erde ziehen, so schöpfen wir Engel unsere wahre Stärke aus der Demut - jener stillen Kraft, die uns mit der unendlichen Quelle allen Seins verbindet.
 
-![source/images/flute-2.png](source/images/flute-2.png)
+![images/flute-2.png](source/images/flute-2.png)

@@ -1,6 +1,6 @@
 ## Sechste Schale - Heiliger himmlischer Geist
 
-![source/images/staff-6.png](source/images/staff-6.png)
+![images/staff-6.png](source/images/staff-6.png)
 
 Mit dem fünften und letzten Loch unserer Flöte erinnern wir uns nicht nur an die Kraft der Liebe und was es bedeutet, wahrhaft zu lieben, sondern erkennen auch, dass Liebe unser wertvollster Schatz ist, der selbst den brillantesten Intellekt übertrifft.
 
@@ -24,4 +24,4 @@ Gefallene sind nur in den zwei Talenten eines Parasiten und eines Schmarotzers g
 
 Dieser Missbrauch des himmlischen Geistes macht die Gefallenen noch schlimmer, und wir Engel müssen der traurigen Wahrheit ins Auge sehen, dass wir nicht helfen können und ihnen den Rücken kehren müssen.
 
-![source/images/flute-6.png](source/images/flute-6.png)
+![images/flute-6.png](source/images/flute-6.png)

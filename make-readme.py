@@ -1,4 +1,6 @@
 import os
+import shutil
+import subprocess
 
 # bake-md.py
 # This script reads markdown files from specified directories and combines them into a single README.md file.
@@ -126,5 +128,11 @@ def writeFile(path, content):
     print(str(len(content)) + ' chars written to ' + path)
 
 writeFile('./README.md', text)
+
+subprocess.run(['quarto', 'render'])
+
+writeFile('./Das-Herz-von-Jerusalem/Das-Herz-von-Jerusalem.md', text)
+
+
 
 

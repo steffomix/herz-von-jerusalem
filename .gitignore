@@ -1,2 +1,6 @@
 .quarto
 .vscode
+.source
+
+/.quarto/
+**/*.quarto_ipynb

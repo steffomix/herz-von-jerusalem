@@ -1,6 +1,6 @@
 project:
   type: book
-  output-dir: _book
+  output-dir: Das-Herz-von-Jerusalem
 book:
   title: "Das Herz von Jerusalem"
   language: de
@@ -83,7 +83,7 @@ format:
     code-fold: false
 
   epub:
-    cover-image: cover.png
+    cover-image: de/images/blossom-crown.png
     title-page: true
     toc: true
     number-sections: false

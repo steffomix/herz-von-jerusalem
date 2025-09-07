@@ -161,8 +161,13 @@ for page in pageFiles:
     pageText = page.getText()
     text += pageText
 
-file = open('./README.md', 'w')
-file.write(text)
-print(str(len(text)) + ' chars written to README.md')
-file.close()
+def writeFile(path, content):
+    file = open(path, 'w')
+    file.write(content)
+    file.close()
+    print(str(len(content)) + ' chars written to ' + path)
+
+writeFile('./README.md', text)
+
+writeFile('../quarto-book/source.md', text)
 

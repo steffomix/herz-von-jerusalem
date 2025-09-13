@@ -2,8 +2,6 @@ import os
 import shutil
 import subprocess
 
-# bake-md.py
-# This script reads markdown files from specified directories and combines them into a single README.md file.
 
 
 # Represents a page in the book.
@@ -78,22 +76,23 @@ for line in fileLines:
         f = line.split(dir)[1].strip()
         pages.append(Page(dir + f, True))
 
-# Iterate through each page file and append its text content to the pages list.
+# Join pages to final book text in markdown format
 text = ''
 for page in pages:
     text += page.getText()
 
-def writeFile(path, content):
-    file = open(path, 'w')
-    file.write(content)
-    file.close()
-    print(str(len(content)) + ' chars written to ' + path)
+readmeFile = './README.md'
 
-writeFile('./README.md', text)
+file = open(readmeFile, 'w')
+file.write(text)
+file.close()
+print(str(len(text)) + ' chars written to ' + readmeFile)
 
 subprocess.run(['quarto', 'render'])
 
-writeFile('./Das-Herz-von-Jerusalem/Das-Herz-von-Jerusalem.md', text)
+dest = '/Das-Herz-von-Jerusalem'
+shutil.copy(readmeFile, '.' + dest + dest + '.md')
+shutil.copy('.' + dest+ '/index.html', '.' + dest + dest + '.html')
 
 
 

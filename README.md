@@ -1,6 +1,8 @@
 # Das Herz von Jerusalem
 
-# Das Herz von Jerusalem
+### EARLY ACCESS WARNING
+| **Read on you own risk!**
+Wait on this Channel for the LET's GO call: <https://www.youtube.com/@MessiahHasReturned>
 
 ![de/images/blossom-crown.png](de/images/blossom-crown.png)
 

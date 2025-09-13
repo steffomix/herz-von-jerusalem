@@ -6,13 +6,18 @@ book:
   language: de
   chapters:
     - index.qmd
+    - part: de/book-about-index.qmd
+      chapters:
+      - de/book-about-1.qmd
+      - de/book-about-2.qmd
+      - de/book-about-3.qmd
+      - de/book-about-4.qmd
     - part: de/book-preface-index.qmd
       chapters:
       - de/book-preface-1.qmd
       - de/book-preface-2.qmd
       - de/book-preface-3.qmd
       - de/book-preface-4.qmd
-      - de/book-preface-5.qmd
     - part: de/chapter-1-index.qmd
       chapters:
       - de/chapter-1-preface-1.qmd
@@ -60,13 +65,13 @@ book:
       - de/chapter-3-6.qmd
       - de/chapter-3-7.qmd
       - de/chapter-3-epilogue-1.qmd
-    - part: de/book-epilogue-index.qmd
-      chapters:
-      - de/book-epilogue-1.qmd
-      - de/book-epilogue-2.qmd
-      - de/book-epilogue-3.qmd
-      - de/book-epilogue-4.qmd
-      - de/book-epilogue-5.qmd
+#    - part: de/book-epilogue-index.qmd
+#      chapters:
+#      - de/book-epilogue-1.qmd
+#      - de/book-epilogue-2.qmd
+#      - de/book-epilogue-3.qmd
+#      - de/book-epilogue-4.qmd
+#      - de/book-epilogue-5.qmd
 
 format:
   html:
@@ -74,8 +79,7 @@ format:
     toc: true
     number-sections: false
     code-fold: false
-
-
+  
   pdf:
     documentclass: book
     toc: true

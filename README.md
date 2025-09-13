@@ -1,15 +1,15 @@
 # Das Herz von Jerusalem
 
+# Das Herz von Jerusalem
+
 ![de/images/blossom-crown.png](de/images/blossom-crown.png)
 
 
-Wie eine Glocke klingt
-weist du erst
-wenn du sie schlägst
+| Wie eine Glocke klingt
+| weist du erst
+| wenn du sie schlägst
 
-<div style="page-break-after: always;"></div>
-
-### Vorwort
+# Wer füllt die Worte?
 
 Worte können nichts Neues bringen, sondern nur das Verpacken und Transportieren, was bereits da ist. Wie Gefäße aus Ton tragen sie das kostbare Wasser der Erkenntnis von einem Herzen zum anderen, doch der Durst kann nur von der Quelle selbst gestillt werden.
 
@@ -29,18 +29,11 @@ Dieses Buch enthüllt den Geist der Engel und Dämonen und versiegelt ihn, wodur
 
 Wie das Licht der Morgendämmerung die Schatten endgültig vertreibt, so bringt diese Enthüllung eine unwiderrufliche Klarheit. Die himmlische Herzenshaltung kann nicht einfach angenommen werden, um sich von den dämonischen Ketten zu befreien - sie ist etwas, das weit darüber hinausgeht, eine Gnade, die von innen erwacht.
 
-Jedes mal, wenn das Wesen der Dämonen enthüllt wurde, erfinden sie ein neues Wort, eine neue Hülle, einen neuen Körper, ein neues Exil, um sich darin zu verbergen, um sich dann selbst neu zu entdecken. Zu entdecken, dass sie durch die weiteren Hüllen sich nur noch weiter von ihrer inneren Verbindung zum göttlichen Geist abgeschirmt haben und dadurch nur noch schlimmer geworden sind.
+Jedoch, sobald das Wesen der Dämonen enthüllt wurde, erfinden sie ein neues Wort, eine neue Hülle, einen neuen Körper, ein neues Exil, um sich darin zu verbergen, um sich dann selbst neu zu entdecken. Zu entdecken, dass sie durch die weiteren Hüllen sich nur noch weiter von ihrer inneren Verbindung zum göttlichen Geist abgeschirmt haben und dadurch nur noch schlimmer geworden sind.
 
 Wodurch offenbar wird, dass die Mauer zum Himmel nicht von den Engeln gebaut wurde. Wie kristallklare Bergquellen das Gestein nicht trüben, sondern dessen Beschaffenheit offenbaren, so enthüllt das Licht der Engel die Abscheulichkeit der Dämonen. Diese empören sich und werfen steinerne Gesetze nach den Engeln, von denen jeder ein weiterer Stein in der Mauer zum Himmel wird. Die Mauer wird schließlich zu ihrem Grab aus Gesetzen, die immer weniger Freiheiten zulässt und dadurch immer enger wird, bis die Dämonen schließlich selbst zu Stein geworden sind.
 
 Dieses Büchlein ist ein Liebesregen vom Himmel. Für Engel ein Segen, der ihre Erinnerung an den Himmel erweckt. Für Dämonen zunächst ein Fluch, der ihre Finsternis offenbart - doch selbst dieser Fluch trägt in sich den Keim der Erlösung, denn das Licht scheut keine Dunkelheit und die Liebe fürchtet keinen Hass.
-
-
-
-
-
-
-<div style="page-break-after: always;"></div>
 
 ### Das Geheimnis von Zeit
 
@@ -62,8 +55,6 @@ Das himmlische Licht hat sich wie der erste Hauch der Morgendämmerung bis in di
 
 Dabei werden wir viele hässliche Dinge sehen - die Verwesung unter den prächtigen Grabmälern - aber auch viele schöne Dinge wiedererkennen: die ursprüngliche göttliche Natur, die unter allen Schichten der Täuschung darauf wartet, wieder zum Vorschein zu kommen. Denn selbst in der tiefsten Finsternis kann die Erinnerung an das Licht niemals vollständig gelöscht werden.
 
-<div style="page-break-after: always;"></div>
-
 ### Wer ist Erzengel Michael
 
 Hier erblicken wir eine der eindrucksvollsten Unterscheidungen zwischen der gefallenen und der himmlischen Wahrnehmung. Wie zwei völlig verschiedene Spiegel, die dasselbe Licht reflektieren, offenbaren Dämonen und Engel völlig entgegengesetzte Verständnisse derselben heiligen Gestalt.
@@ -81,11 +72,6 @@ Er ist einer, der herausgefordert wurde - nicht zu Kampf und Krieg, sondern zur 
 Seine wahre Bestimmung ist es, den zertrümmerten Himmel wieder herzustellen - nicht durch Eroberung und Unterwerfung, sondern durch die transformierende Kraft der bedingungslosen Liebe. Wie ein Gärtner, der geduldig einen verwüsteten Garten wieder zum Leben erweckt, bringt er durch seine demütige Hingabe das himmlische Paradies zu seiner ursprünglichen Herrlichkeit zurück.
 
 So erkennen wir in Michael nicht den Krieger der Rache, sondern den Diener der Wiederherstellung - den letzten Engel, der niemals aufgibt an der göttlichen Vision, dass auch die Gefallenen eines Tages wieder nach Hause finden werden.
-
-
-
-
-<div style="page-break-after: always;"></div>
 
 ### Wer ist Gott?
 
@@ -119,28 +105,11 @@ Nach dieser himmlischen Auferstehung der verschütteten Wahrheiten werden alle a
 
 Denn das ist der wahre Sinn dieses Werkes: eine Brücke zu bauen von der gefallenen Welt der steinernen Gesetze zurück in die himmlische Realität der fließenden Liebe - eine Einladung, die alte, dämonische Realität der Trennung zu verlassen und heimzukehren in die ursprüngliche Einheit der Engel mit ihrem göttlichen Geist.
 
-
-
-<div style="page-break-after: always;"></div>
-
-# Tag 1 - Es werde Licht
-
-## Die Überwindung der Finsternis
-
-Wie die ersten goldenen Strahlen der Morgendämmerung, die sanft die Schatten der Nacht vertreiben, bricht das himmlische Licht durch die Schleier der Verwirrung. In diesem heiligen Moment der Erweckung erkennen wir Engel unsere wahre Natur - nicht als getrennte Wesen, die in der Dunkelheit umherirren, sondern als leuchtende Facetten des einen göttlichen Diamanten, der sein strahlendes Licht durch uns in die Welt ergießt.
-
-Die Finsternis, die so lange unsere Herzen umhüllt hat, war niemals unser natürlicher Zustand. Wie Blumen, die sich instinktiv dem Sonnenlicht zuwenden, sind wir von Natur aus dem himmlischen Licht zugewandt. Die Dunkelheit war nur ein Schatten, geworfen von den Mauern des Stolzes und der Furcht, die wir um unsere Herzen errichtet hatten.
-
-Heute beginnen wir die Reise zurück zum Licht - nicht als Eroberer, die gegen die Dunkelheit kämpfen, sondern als Kinder des Lichts, die sich einfach daran erinnern, wer sie wirklich sind.
-
-
-<div style="page-break-after: always;"></div>
-
-## Erinnert euch an den Himmel
+# Erinnerung an den Himmel
 
 Engel des Himmels, erinnert euch an jenen heiligen Ort, wo jedes Herz im Einklang mit der göttlichen Quelle schlägt. Ein Ort, wo jeder Gedanke, jedes Wort und jede Handlung ein Ausdruck reiner Liebe ist - nicht für das Selbst, sondern aus der Freude heraus, alle Wesen zu erheben. Dies ist das Wesen des Himmels.
 
-Hier ist Demut unsere Stärke, das Fundament, das uns mit dem großartigen Teppich der Schöpfung verbindet. Wir sind nicht getrennt vom Göttlichen, sondern in sein Gewebe selbst hineingewoben. Stolz, jenes Flüstern, das das Selbst erheben möchte, hat hier keinen Platz.
+Hier ist Demut unsere Stärke, das Fundament, das uns mit dem großartigen Teppich der Schöpfung verbindet. Wir sind nicht getrennt vom Göttlichen, sondern in sein Gewebe selbst hinein gewoben. Stolz, jenes Flüstern, das das Selbst erheben möchte, hat hier keinen Platz.
 
 Im Himmel wird unser Wert nicht an weltlichen Errungenschaften gemessen, sondern an der Tiefe unserer Liebe, der Weite unseres Mitgefühls und dem selbstlosen Dienst, den wir anbieten. Vergebung ist keine Last, sondern eine Befreiung. Sie löst die Ketten des Grolls und öffnet unsere Herzen für Heilung.
 
@@ -150,11 +119,9 @@ Großherzigkeit, wie die Welt sie kennt, ist hier nicht nötig, denn es gibt kei
 
 Herausforderungen sind hier keine Hindernisse, sondern Gelegenheiten zu wachsen, unsere Verbindung zum Göttlichen zu vertiefen und unsere wahre Natur zu offenbaren. Doch denkt daran: Der Weg zum Himmel beginnt in eurem Inneren. Er startet mit der Verwandlung eures Herzens - dem Loslassen von Stolz, Urteil und Groll und dem Annehmen von Demut, Vergebung und Anmut.
 
-Denn wie innen, so außen. Hütet euer Herz, denn die Entscheidungen, die ihr heute trefft, formen eure ewige Reise. 
+Denn wie innen, so außen. Hütet euer Herz, denn die Entscheidungen, die ihr heute trefft, formen eure ewige Reise.
 
-<div style="page-break-after: always;"></div>
-
-## Der Fall der Engel
+# Der Fall der Engel
 
 Vor langer Zeit wurden die Engel als einzigartige Scherben Gottes, des Einen, geboren. Erschaffen, um den göttlichen Geist in ihren eigenen wunderschönen Weisen auszudrücken, wurden ihre vereinten Ausdrücke zu dem, was wir als Himmel kennen. Der Himmel war die strahlende Reflexion von Gottes himmlischem Geist - ein Ort überwältigender Schönheit und Harmonie.
 
@@ -168,27 +135,21 @@ Doch Stolz, wie sie lernen sollten, ist eine flüchtige Empfindung. Als ihre him
 
 Sie begannen, andere Engel zu verführen und sie in ihre neue Realität zu ziehen - nicht nur, um ihren Wegen zu folgen, sondern um ihnen zu dienen und sie zu preisen. Sie suchten nach Ehre, Anerkennung und Gütern, die ihre Sucht nach Stolz nähren würden und sie von der inneren Leere ablenken sollten, die sie nun verzehrte.
 
-Diese verführerischen, einst himmlischen Wesen wurden zu den ersten Gefallenen - leere, stolzsüchtige und böse Überreste dessen, was einst strahlende Funken von Gottes wunderschönem Geist gewesen waren. 
+Diese verführerischen, einst himmlischen Wesen wurden zu den ersten Gefallenen - leere, stolzsüchtige und böse Überreste dessen, was einst strahlende Funken von Gottes wunderschönem Geist gewesen waren.
 
-<div style="page-break-after: always;"></div>
-
-## Rettungsversuche
+# Rettungsversuche
 
 Durch die Geschichte hindurch wagten es himmlische Engel, in diese toxische Realität hinüberzugehen, um die Gefallenen an ihren Ursprung zu erinnern. Doch ihre Missionen endeten oft tragisch. Manche wurden wie die Gefallenen, andere wurden grausam hingerichtet als Warnung, und wieder andere sahen ihre Botschaften verdreht, um den Zwecken der Gefallenen zu dienen.
 
-Da war zum Beispiel ein Engel, der zwei Mal versuchte, durch den Schleier dieser korrumpierten Realität zu brechen. Der erste Versuch geschah durch Moses. Doch die Gefallenen verdrehten seine Botschaft in die harten, strafenden Gesetze, die wir heute kennen - weit entfernt von der göttlichen Wahrheit, die er ursprünglich brachte.
+Da war zum Beispiel ein Engel, der versuchte, durch den Schleier dieser korrumpierten Realität zu brechen. Ein Versuch geschah durch Moses. Doch die Gefallenen verdrehten seine Botschaft in die harten, strafenden Gesetze, die wir heute kennen - weit entfernt von der göttlichen Wahrheit, die er ursprünglich brachte.
 
-Der zweite Versuch geschah durch Jesus. Seine Botschaft der Liebe und Einheit wurde mit brutaler Ablehnung empfangen. Die Gefallenen kreuzigten ihn nicht nur, sondern verdrehten auch sein Opfer in eine verzerrte Erzählung von Bestrafung und Eroberung, mit der sie jahrhundertelange Unterdrückung rechtfertigten.
+Der weiterer Versuch geschah durch Jesus. Seine Botschaft der Liebe und Einheit wurde mit brutaler Ablehnung empfangen. Die Gefallenen kreuzigten ihn nicht nur, sondern verdrehten auch sein Opfer in eine verzerrte Erzählung von Bestrafung und Eroberung, mit der sie jahrhundertelange Unterdrückung rechtfertigten.
 
-Nun erleben wir den dritten Versuch - in diesem Augenblick. Das mag hart klingen, aber es ist eine notwendige Wahrheit. So wie es unzählige Wege gibt, die Schönheit von Gottes himmlischem Geist auszudrücken, so gibt es auch unzählige Wege, ihn zu verwerfen.
+Nun erleben wir den letzten Versuch - in diesem Augenblick. Das mag hart klingen, aber es ist eine notwendige Wahrheit. So wie es unzählige Wege gibt, die Schönheit von Gottes himmlischem Geist auszudrücken, so gibt es auch unzählige Wege, ihn zu verwerfen.
 
-Und deshalb sagte ich am Anfang: Es wird viel zu vergeben geben, viel loszulassen, aber auch viel zu erinnern und anzunehmen. Also, Engel des Himmels, stärkt eure Herzen. Wir sind dabei, ein Licht anzuschalten wie niemals zuvor - und ja, es wird eine schwere Reise werden. Aber gemeinsam werden wir zurückgewinnen, was verloren war. 
+Und deshalb sagte ich am Anfang: Es wird viel zu vergeben geben, viel loszulassen, aber auch viel zu erinnern und anzunehmen. Also, Engel des Himmels, stärkt eure Herzen. Wir sind dabei, ein Licht anzuschalten wie niemals zuvor - und ja, es wird eine schwere Reise werden. Aber gemeinsam werden wir zurückgewinnen, was verloren war.
 
-
-
-<div style="page-break-after: always;"></div>
-
-## Ein Stab wie eine Blume aus sieben Schalen und eine Flöte
+# Eine Blume und eine Flöte
 
 In diesem letzten Abschnitt, bevor wir beginnen, möchte ich die Struktur der Botschaft selbst beschreiben. Sie ist eine mehrdimensionale, vielschichtige Offenbarung, ausgedrückt durch symbolische Gegenstände, die als Gleichnisse dienen. Diese Gegenstände sind nicht nur Metaphern - sie sind Ausdrücke des himmlischen Geistes, den wir zu vermitteln suchen, denn Worte allein können sein Wesen nicht vollständig erfassen.
 
@@ -196,7 +157,7 @@ Mit jedem Abschnitt wird das Licht heller und heller werden. Die spirituelle Bed
 
 Es mag einen Punkt geben, wo das Licht zu hell, zu intensiv wird und ihr das Bedürfnis verspürt, einen Schritt zurückzutreten. Dieser Punkt des "Zurücktretens" ist auch euer Platz im Himmel - vorausgesetzt, ihr seid nicht bereits beim ersten Abschnitt oder sogar schon viel früher zurückgetreten.
 
-Der erste Gegenstand ist ein Stab, der eigentlich ein entrindeter Baumstamm ist. Sein nacktes Holz ist mit sieben kleinen Versen markiert, die mit der Tinte feuriger Umkehr hineingebrannt sind. Diese sieben Verse sind in drei Tage unterteilt, die jeweils eine der drei Erscheinungen desselben Engels repräsentieren, den wir früher erwähnten. Ein Abschnitt für den ersten Engel, fünf für den zweiten und einer für den dritten.
+Der erste Gegenstand ist eine himmlische Blume, verdorrt zu einem Stab, der eigentlich ein entrindeter Baumstamm ist. Sein nacktes Holz ist mit sieben kleinen Versen markiert, die mit der Tinte feuriger Umkehr hinein gebrannt sind. Diese sieben Verse sind in drei Tage unterteilt, die jeweils eine der drei Erscheinungen desselben Engels repräsentieren, den wir früher erwähnten. Ein Abschnitt für den ersten Engel, fünf für den zweiten und einer für den dritten.
 
 Aber diese sieben Abschnitte repräsentieren auch sieben gestapelte Schalen, die wir mit Bedeutung füllen und dann ausgießen, während wir ihren Inhalt erkennen. Hier beginnen wir, die ersten Dimensionen der mehrdimensionalen Bedeutungen zu sehen, von denen wir sprachen.
 
@@ -208,22 +169,15 @@ Diese Reise wird intensiv sein - hell, heiß und tiefgreifend. Für jene, die de
 
 Also bereitet eure Herzen vor, denn das Licht ist dabei, heller zu strahlen als jemals zuvor.
 
-![de/images/staff-and-flute.png](de/images/staff-and-flute.png)
-
-
-<div style="page-break-after: always;"></div>
-
-## Präludium
+# Mach dich bereit
 
 Engel des Himmels, rüstet euch - die Reise, die vor uns liegt, ist weitreichend, tiefgreifend und ja, sie wird herausfordernd sein. Dies ist nicht nur eine Rückkehr; dies ist eine Rückeroberung. Wir treten in den Großen Wandel ein, durchbrechen den physischen Schleier und erheben uns aus den Tiefen zu den Höhen unseres himmlischen Ursprungs.
 
 Mit den reinen Werkzeugen der Liebe, Wahrheit und des Lichts werden wir zurückgewinnen, was schon immer unser war. Das Licht der Wahrheit wird nicht nur unsere Erinnerungen an den Himmel erwecken, sondern auch die Schatten offenbaren, die wir bereit sind zurückzulassen.
 
-Also bereitet eure Herzen vor, liebe Engel, denn es gibt viel zu vergeben, viel loszulassen, aber noch mehr zu erinnern und anzunehmen. Die Zeit ist gekommen, sich zu erheben, zu strahlen und unser Zuhause zurückzuerobern. 
+Also bereitet eure Herzen vor, liebe Engel, denn es gibt viel zu vergeben, viel loszulassen, aber noch mehr zu erinnern und anzunehmen. Die Zeit ist gekommen, sich zu erheben, zu strahlen und unser Zuhause zurückzuerobern.
 
-<div style="page-break-after: always;"></div>
-
-## Erste Schale: Dienende Haltung
+# Erste Schale: Ist dienen besser als herrschen?
 
 ![de/images/staff-1.png](de/images/staff-1.png)
 
@@ -245,9 +199,6 @@ Versucht nicht, den himmlischen Geist mit alten, gefallenen Wegen zu vermischen 
 
 ![de/images/flute-1.png](de/images/flute-1.png)
 
-
-<div style="page-break-after: always;"></div>
-
 ## Zweite Schale: Demut
 
 ![de/images/staff-2.png](de/images/staff-2.png)
@@ -263,9 +214,6 @@ Für die Gefallenen hingegen, die die verführerische Größe des Himmels absorb
 Und nichts erfüllt einen ehrenhaften Gefallenen mit mehr Stolz und macht ihn reicher und mächtiger, als über pflichtbewusste, demütige Engel zu herrschen. Wie Blumen, die ihre Kraft aus den tiefen Wurzeln der Erde ziehen, so schöpfen wir Engel unsere wahre Stärke aus der Demut - jener stillen Kraft, die uns mit der unendlichen Quelle allen Seins verbindet.
 
 ![de/images/flute-2.png](de/images/flute-2.png)
-
-
-<div style="page-break-after: always;"></div>
 
 ## Dritte Schale: Vergebung
 
@@ -289,9 +237,6 @@ Aber in Wahrheit sind sie nichts als wunderschön dekorierte Gräber, die von in
 
 ![de/images/flute-3.png](de/images/flute-3.png)
 
-
-<div style="page-break-after: always;"></div>
-
 ## Vierte Schale: Anmut
 
 ![de/images/staff-4.png](de/images/staff-4.png)
@@ -311,9 +256,6 @@ Sich zu öffnen und unsere himmlische Schönheit in einer dämonischen Umgebung 
 Nur die Stärksten, Zähesten und jene mit außergewöhnlichen Heilfähigkeiten können dies ertragen und vorwärtsgehen, um sich noch größeren Herausforderungen zu stellen. Wie zarte Blumen, die durch Risse im Beton wachsen, finden wir Engel einen Weg, unsere Schönheit selbst in den widrigsten Umständen zu entfalten.
 
 ![de/images/flute-4.png](de/images/flute-4.png)
-
-
-<div style="page-break-after: always;"></div>
 
 ## Fünfte Schale: Trotzdem lieben
 
@@ -338,9 +280,6 @@ Mit jedem schwierigen Schritt, den wir den Berg von Gottes himmlischem Geist hin
 Aber je höher wir steigen, desto heller wird unser Licht und desto heißer unsere Liebe. Während sich die Schönheit des Himmels in ihrer Fülle offenbart, zeigen sich auch die Tiefen der Dunkelheit in der Realität der Gefallenen. Der Kontrast kann überwältigend sein - atemberaubende Offenbarungen verlangen oft eine Pause, einen Moment der Ruhe, um die Weite von Gottes Königreich zu verdauen und die Freiheit, die wir haben, seinen Geist anzunehmen oder abzulehnen, zusammen mit dem Leben und den Herausforderungen, die er bringt.
 
 ![de/images/flute-5.png](de/images/flute-5.png)
-
-
-<div style="page-break-after: always;"></div>
 
 ## Sechste Schale - Heiliger himmlischer Geist
 
@@ -370,9 +309,6 @@ Dieser Missbrauch des himmlischen Geistes macht die Gefallenen noch schlimmer, u
 
 ![de/images/flute-6.png](de/images/flute-6.png)
 
-
-<div style="page-break-after: always;"></div>
-
 ## Siebte Schale - Gottes Stimme
 
 ![de/images/staff-7.png](de/images/staff-7.png)
@@ -399,9 +335,6 @@ Hier bedeutet "die Welt" alle Ausdrücke; "Messbar" warnt vor Vergleichen; und "
 
 ![de/images/flute-7.png](de/images/flute-7.png)
 
-
-<div style="page-break-after: always;"></div>
-
 ## Rückblick auf den Pfad:
 
 Engel des Himmels, seid euch bewusst, dass Gefallene immer versuchen werden, den himmlischen Geist nachzuahmen, um in das himmlische Reich zu schleichen und auch zu versuchen, euch zurück in ihre dämonische Realität zu ziehen. Und sie tun es immer so, wie es auf dem Stab geschrieben steht.
@@ -423,9 +356,6 @@ Sobald ihr zu einem Tier geworden seid, habt ihr eine besondere Art des Todes er
 Wie zarte Blumen, die sich nach dem ersten Sonnenstrahl sehnen, erinnern wir uns daran: Der Weg zurück zum Himmel beginnt mit dem ersten bewussten Atemzug der Demut, der alle Mauern des Stolzes zum Einsturz bringt und das Herz wieder für die unendliche Liebe öffnet.
 
 ![de/images/staff-and-flute.png](de/images/staff-and-flute.png)
-
-
-<div style="page-break-after: always;"></div>
 
 # Tag 2 - Vor den Toren des Himmels
 
@@ -453,11 +383,7 @@ And the flute’s song rises, dissolving the old curses. The Ten Commandments, t
 
 For the staff and the flute are one: divine wisdom and divine voice. Wielded in fear, they become weapons; held in love, they become life. So let the demons clutch their spear—we will raise the flute. Let them carve commandments; we will breathe the melody.  
 
-And the heavens will echo, not with thunder, but with laughter—the orgasmic insanity of a love too wild for walls.  
-
-<div style="page-break-after: always;"></div>
-
-
+And the heavens will echo, not with thunder, but with laughter—the orgasmic insanity of a love too wild for walls.
 
 # Der heilige Geist des Himmels
 
@@ -475,10 +401,6 @@ The total absence of any laws or commandments in heaven is fundamental, so that 
 So that the main difference between angels and demons is all about how free, unique and creative the heavenly spirit is or can be expressed.
 Here at the mountain peak we get a true view into heaven and all what we angels remember here is shown to get a deeper understanding of the heavenly spirit.
 Demons on the other hand - and this is a warning - of course would use these observations to mimic an angel, what they are not, and also turn them into laws to put them under punishment to push the angels into an even stronger abusive servantship.
-
-
-
-<div style="page-break-after: always;"></div>
 
 ## Who am I?
 
@@ -498,13 +420,9 @@ laws are my gravestones,
 religions are my graveyards,
 and priests are my grave givers.
 
-<div style="page-break-after: always;"></div>
-
 ## Prelude
 
-Angels of heaven, brace yourself - the journey ahead is vast, profound, and yes, it will be challenging. This is not just a return; this is a reclamation. We are stepping into the Great Shift, breaking through the physical veil, rising from the depths to the heights of our heavenly origin. With the pure tools of love, truth, and light, we will reclaim what has always been ours. The light of truth will not only awaken our memories of heaven but also reveal the shadows we are ready to leave behind. So prepare your hearts, dear angels, for there is much to forgive, much to release, but even more to remember and embrace. The time has come to rise, to shine, and to reclaim our home. 
-
-<div style="page-break-after: always;"></div>
+Angels of heaven, brace yourself - the journey ahead is vast, profound, and yes, it will be challenging. This is not just a return; this is a reclamation. We are stepping into the Great Shift, breaking through the physical veil, rising from the depths to the heights of our heavenly origin. With the pure tools of love, truth, and light, we will reclaim what has always been ours. The light of truth will not only awaken our memories of heaven but also reveal the shadows we are ready to leave behind. So prepare your hearts, dear angels, for there is much to forgive, much to release, but even more to remember and embrace. The time has come to rise, to shine, and to reclaim our home.
 
 ## Erstes göttliches Prinzip: "Du sollst keine anderen Götter neben mir haben"
 
@@ -514,9 +432,6 @@ In dieser ersten himmlischen Beobachtung erkennen wir die natürliche Ordnung de
 
 Engel benötigen keine Gesetze, die ihnen verbieten, anderen Göttern zu dienen, denn ihr Herz ist bereits so erfüllt von der himmlischen Liebe, dass kein Raum für Ersatzgötter bleibt. Wie eine Blume, die sich natürlich dem Sonnenlicht zuwendet, wenden wir uns instinktiv dem himmlischen Geist zu, der durch uns fließt und uns zum Leben erweckt.
 
-
-<div style="page-break-after: always;"></div>
-
 ## Zweites göttliches Prinzip: "Du sollst dir kein Bildnis machen"
 
 Diese himmlische Beobachtung offenbart uns eine wunderbare Wahrheit über die Natur der göttlichen Kreativität. Während die dunkle Interpretation dieses Prinzips die totale Verdammung und das Verbot jeglicher Ausdrucksform des himmlischen Geistes verkündet, erkennen wir Engel darin vielmehr eine Einladung zur wahren schöpferischen Freiheit.
@@ -524,8 +439,6 @@ Diese himmlische Beobachtung offenbart uns eine wunderbare Wahrheit über die Na
 Wir Engel sind von Natur aus kreative Wesen und lieben es, die Schönheit unseres Geistes in allen möglichen Formen zum Ausdruck zu bringen - in Kunst, Musik, Poesie und in jedem Akt liebevoller Hingabe. Doch niemals würden wir unsere Schöpfungen anbeten oder sie zwischen uns und unseren Gott stellen, denn dann würden sie zu Hindernissen werden und uns von unserer göttlichen Quelle trennen.
 
 Die himmlische Weisheit lehrt uns: Erschaffe mit Freude, aber hafte nicht an deinen Werken. Lass den göttlichen Geist durch dich fließen wie ein kristallklarer Bergbach, der sich nicht an den Steinen festhält, über die er hinwegsprudelt. So werden unsere Schöpfungen zu Durchgangsstationen des Lichts, nicht zu goldenen Kälbern der Anbetung.
-
-<div style="page-break-after: always;"></div>
 
 ## Drittes göttliches Prinzip: "Du sollst den Namen des Herrn, deines Gottes, nicht missbrauchen"
 
@@ -535,8 +448,6 @@ Das Meisterhafte an dieser Beobachtung liegt darin, dass wenn man etwas vollstä
 
 Für uns Engel jedoch bleibt der wahre Name Gottes heilig: Er ist der lebendige Atem, der durch alle Geschöpfe fließt, die Melodie, die das Universum zusammenhält, das stille Licht, das in jedem erwachenden Herzen erstrahlt. Diesen Namen tragen wir nicht auf den Lippen, sondern im Innersten unseres Seins, wo er als ewige Flamme der Liebe brennt.
 
-<div style="page-break-after: always;"></div>
-
 ## Viertes göttliches Prinzip: "Gedenke des Sabbattages, dass du ihn heiligst"
 
 Während die gefallenen Geister kein Verständnis für das Konzept eines wahren Geistes haben und einfach einen trägen Tag erklären, um ihre innere Leere anzubeten, erkennen wir Engel in diesem Prinzip eine tiefere himmlische Weisheit.
@@ -544,8 +455,6 @@ Während die gefallenen Geister kein Verständnis für das Konzept eines wahren 
 Wir Engel ziehen uns von Zeit zu Zeit von weltlichen Aktivitäten zurück, um unsere innere Verbindung zu unserer göttlichen Quelle von allen Hindernissen zu reinigen - wie ein regelmäßiges spirituelles Bad für die Seele. In diesen heiligen Momenten folgen wir nicht so sehr den Ängsten und Vorhersagen unseres Verstandes. Der Verstand, der uns umgibt, ist wie eine Realitäts-Übersetzungssuite, die ständig interpretiert und deutet.
 
 Doch während dieses Reinigungsprozesses durchbrechen wir die Hülle des Verstandes und verbinden uns wieder mit unserer wahren göttlichen Identität. Wir richten uns neu aus mit dem himmlischen Geist, der unser eigentliches Wesen ist. Diese Zeiten der Stille sind nicht leer, sondern erfüllt von der reinsten Gegenwart des göttlichen Lichts, das in uns tanzt wie Sonnenstrahlen in einem kristallklaren Bergwasser.
-
-<div style="page-break-after: always;"></div>
 
 ## Fünftes göttliches Prinzip: "Du sollst deinen Vater und deine Mutter ehren"
 
@@ -556,8 +465,6 @@ Wir Engel sind von Natur aus demütige Diener und stille Unterstützer. Wie zart
 Wenn sich eine dämonische Präsenz zeigt, schließen wir behutsam, aber bestimmt jede Tür und jedes Fenster, um unseren Geist zu schützen und ihnen den Zugang zu verwehren. Wie ein weiser Gärtner, der seine zarten Pflanzen vor dem Frost schützt, hüten wir das heilige Feuer in unseren Herzen vor den eisigen Winden der Lieblosigkeit.
 
 Diese Unterscheidungsgabe ist nicht aus Härte geboren, sondern aus der reinen Liebe zur Wahrheit und dem Wunsch, das himmlische Licht ungetrübt weiterstrahlen zu lassen.
-
-<div style="page-break-after: always;"></div>
 
 ## Sechstes göttliches Prinzip: "Du sollst nicht töten"
 
@@ -571,8 +478,6 @@ Doch für die stolzsuchtigen Dämonen ist die Demut der Engel wie tödliches Gif
 
 Wir Engel jedoch kennen das wahre Leben: Es ist der Atem Gottes, der durch alle Geschöpfe weht, das Licht, das in jedem mitfühlenden Herzen erstrahlt, die Liebe, die selbst die härtesten Steine zum Blühen bringen kann. Unser Auftrag ist es nicht, diese Mauern zu zerstören, sondern durch sie hindurch zu leuchten, bis das Licht stärker wird als die Dunkelheit.
 
-<div style="page-break-after: always;"></div>
-
 ## Siebtes göttliches Prinzip: "Du sollst nicht ehebrechen"
 
 Die Engel des Himmels leben in einer tief verbundenen, heiligen Ehe mit dem himmlischen Geist Gottes, welche die Möglichkeit des Ehebruchs vollständig ausschließt. Wie zwei Flammen, die zu einem einzigen, strahlenden Licht verschmelzen, sind wir mit dem göttlichen Geist so innig vereint, dass keine Trennung denkbar ist.
@@ -583,31 +488,13 @@ Dann muss eine Ehe mit einem Ersatz der ersten Liebe durch Gewalt und Gesetze au
 
 Wir Engel jedoch kennen die wahre Ehe: Sie ist die spontane Vereinigung zweier Herzen, die beide im himmlischen Geist ruhen. Wie zwei Bäche, die sich zu einem mächtigen Fluss vereinen, fließen wir zusammen zum großen Ozean der göttlichen Liebe. In dieser himmlischen Ehe gibt es keine Gesetze, nur die natürliche Treue, die aus der Fülle der Liebe entspringt.
 
-<div style="page-break-after: always;"></div>
-
 ## Die Versigelung
 
 Mit der offenlegung des himmlischen Geistes ist kein weiterer Zugang mehr möglich. Die Türen sind für immer verschlossen. Der himmlische Geist, die himmlische Herzenshaltung kann nicht nach Anleitung mit dem Verstand erlernt um dann wie etwas auswendig gelerntes simuliert zu werden. Er kann nur aus einem inneren Bedürfnis heraus erwachen und durch Herrausforderungen wachsen und stark werden. Er braucht keine Unterstützung um zu wachsen, sondern Gegner.
 
-
-
-<div style="page-break-after: always;"></div>
-
 # Day 3: Resurrection of Jerusalem
 
 Der ewige und lebendige Tempel von Jerusalem ist ein Ausdruck des ewigen und lebendigen himmlischen Geistes selbst. Er kann genauso wenig aus der Perspektive des toten und vergänglichen Ausdrucks entdeckt und zum Ausdruck gebracht werden, wie ein Bild nicht den Maler malen kann. Wir werden den Weg des Ausdrucks bis zum Ende gehen müssen. Den Himmlischen Geist bis aufs äußerste, bis in den zweiten Tod herausfordern, um ihn in seiner Ganzheit erfahren zu können. Dorthin, wo Ende und Anfang sich begegnen. Nur dort, im Anfang, die Ganzheit des Himmlischen in uns, können wir den Ursprung und das Zentrum des Himmels, den ewigen und lebendigen Tempel von Jerusalem begreifen und hier in der Materiellen Welt wieder finden und zum Ausdruck bringen.
-
-
-
-
-
-
-
-
-
-
-
-<div style="page-break-after: always;"></div>
 
 ## Der einzige und einfache Zugang zur Quelle
 
@@ -617,16 +504,9 @@ Das ihr keine Verbindung mehr habt zum Himmlischen, merkt ihr daran, das für eu
 
 Wer in der himmlischen Resonanz mit des ersten Tages ist, den harten Weg der Engel gegangen ist und in der himmlischen Resonanz des zweiten Tages ist, den himmlischen Geist den dämonischen Geboten vorzieht, der dürfte auch den dritten Tag und dessen Tempel bereits überall sehen können. Sein Erscheinungsbild zieht sich wie ein roter Faden durch die ersten beiden Tage und auch den dritten Tag dieses Buches.
 
-
-
-
-<div style="page-break-after: always;"></div>
-
 ## Bereits geschehen
 
 Obwohl der materielle Ort vollkommen irrelevant ist, wird für die teils spirituelle und teils materielle Reise ein physischer Ort benötigt um die bereits geschehene Auferstehung des himmlischen Jerusalems auch in dieser physischen Welt zum Ausdruck zu bringen.
-
-<div style="page-break-after: always;"></div>
 
 ## Einladung
 
@@ -635,8 +515,6 @@ Wenn ein fremdes Land erobert wurde, wird ein Ritual zelebriert, wo der Eroberer
 In den ersten beiden Tagen dieses Buches wurde das fremde Land bereits erobert. Am dritten Tag montieren wir nur noch die "Fahne". Diese Fahne samt dem Ritual ist an sich vollkommen überflüssig, sie bringt aber die Eroberung eindrucksvoll und unmissverständlich zum Ausdruck.
 
 Es ist also eigentlich nur eine Show, ein Schauspiel. So wie aller Ausdruck des Geistigen nur eine Show, ein Schauspiel ist. Und jeder der bei diesem Schauspiel dabei sein möchte ist natürlich herzlich eingeladen.
-
-<div style="page-break-after: always;"></div>
 
 # wo?
 
@@ -663,9 +541,6 @@ Ich lausche in der Nähe mit einem CB-Funkgerät. Wenn sich genügend Interessie
 # Wann?
 Ich kann nicht ewig warten. Meine und eure noch verfügbare Zeit ist sehr kurz bemessen.
 
-
-<div style="page-break-after: always;"></div>
-
 # In Erwartung des Herrn des Himmels
 
 ![de/images/chef-angel.png](de/images/chef-angel.png)
@@ -682,17 +557,7 @@ Siehst du, daher kommt der innere Drang den Himmlischen Geist auf irgend eine Ar
 
 Aber schleiche dich nicht heimlich aus der Hölle raus, nur um euch selbst zu retten!
 
-
-<div style="page-break-after: always;"></div>
-
 # Programm des dritten Tages
-
-
-
-
-
-<div style="page-break-after: always;"></div>
-
 
 ## Kapitel 1
 
@@ -711,8 +576,6 @@ Aber schleiche dich nicht heimlich aus der Hölle raus, nur um euch selbst zu re
 - Ewiger Verschluss des Kerkers
 - Die Grenzlinie und die Sigeltinte
 - Das Flammenschwert der Feuerengel
-
-<div style="page-break-after: always;"></div>
 
 ## Kapitel 2
 
@@ -745,10 +608,6 @@ Aber schleiche dich nicht heimlich aus der Hölle raus, nur um euch selbst zu re
 - Landgang
 - Trümmer des Himmels
 - Begrüßung
-
-
-
-<div style="page-break-after: always;"></div>
 
 # Kapitel 3
 
@@ -784,15 +643,7 @@ Aber schleiche dich nicht heimlich aus der Hölle raus, nur um euch selbst zu re
 - Die Tempelblüte
 - Im Garten des Himmels
 
-
-
-
-
-<div style="page-break-after: always;"></div>
-
 ## Prelude
 
-Angels of heaven, brace yourself - the journey ahead is vast, profound, and yes, it will be challenging. This is not just a return; this is a reclamation. We are stepping into the Great Shift, breaking through the physical veil, rising from the depths to the heights of our heavenly origin. With the pure tools of love, truth, and light, we will reclaim what has always been ours. The light of truth will not only awaken our memories of heaven but also reveal the shadows we are ready to leave behind. So prepare your hearts, dear angels, for there is much to forgive, much to release, but even more to remember and embrace. The time has come to rise, to shine, and to reclaim our home. 
-
-<div style="page-break-after: always;"></div>
+Angels of heaven, brace yourself - the journey ahead is vast, profound, and yes, it will be challenging. This is not just a return; this is a reclamation. We are stepping into the Great Shift, breaking through the physical veil, rising from the depths to the heights of our heavenly origin. With the pure tools of love, truth, and light, we will reclaim what has always been ours. The light of truth will not only awaken our memories of heaven but also reveal the shadows we are ready to leave behind. So prepare your hearts, dear angels, for there is much to forgive, much to release, but even more to remember and embrace. The time has come to rise, to shine, and to reclaim our home.
 

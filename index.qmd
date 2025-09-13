@@ -2,6 +2,11 @@
 title: "Das Herz von Jerusalem"
 ---
 
-Willkommen zum Buch "Das Herz von Jerusalem".
+# Das Herz von Jerusalem
 
-Bitte wählen Sie ein Kapitel aus dem Inhaltsverzeichnis.
+![de/images/blossom-crown.png](de/images/blossom-crown.png)
+
+
+| Wie eine Glocke klingt
+| weist du erst
+| wenn du sie schlägst

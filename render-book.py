@@ -17,6 +17,7 @@ class Page:
     # @constructor 
     def __init__(self, filename, addPagebreak):
         self.addPagebreak = addPagebreak
+        self.filename = filename
         
         if  not(os.path.exists(filename)):
             open(filename, 'w').close()
@@ -72,6 +73,11 @@ fileLines = [line.strip() for line in lines if line.strip() != '']
 
 pages = [Page('index.qmd', True)]
 for line in fileLines:
+    if(line.startswith('- part: ' + dir)):
+        f = line.split(dir)[1].strip()
+        pages.append(Page(dir + f, True))
+        continue
+    
     if(line.startswith('- ' + dir)):
         f = line.split(dir)[1].strip()
         pages.append(Page(dir + f, True))
@@ -79,6 +85,7 @@ for line in fileLines:
 # Join pages to final book text in markdown format
 text = ''
 for page in pages:
+    print(page.filename)
     text += page.getText()
 
 readmeFile = './README.md'
@@ -88,7 +95,7 @@ file.write(text)
 file.close()
 print(str(len(text)) + ' chars written to ' + readmeFile)
 
-subprocess.run(['quarto', 'render'])
+# subprocess.run(['quarto', 'render'])
 
 dest = '/Das-Herz-von-Jerusalem'
 shutil.copy(readmeFile, '.' + dest + dest + '.md')

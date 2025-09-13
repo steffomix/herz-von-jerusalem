@@ -11,6 +11,19 @@ Wait on this Channel for the LET's GO call: <https://www.youtube.com/@MessiahHas
 | weist du erst
 | wenn du sie schlägst
 
+# Über dieses Buch
+
+Dieses Buch ist nicht kostenlos.
+Wenn das vernichten, verbrennen, also das wahrhaftige opfern von etwas Geld für dich nicht befreiend wirkt, dann ist dieses Buch für dich vollkommen nutzlos.
+
+Damit fahre ich mit diesem Buch genau dort fort, mache genau dort weiter, wo Jesus Christus unterbrochen wurde.
+
+Im ersten Teil dieses Buches wird zunächst der wahre Geist von Jesus Christus wieder hergestellt.
+
+Im zweiten Teil dieses Buches wird der wahre Geist von Moses Wieder hergestellt.
+
+Der dritte Teil beschreibt Zeitpunkt, Ort und Inhalte von einem besonderen Ereignis, in dem der wahre Geist von Noah und Erzengel Michael wieder hergestellt werden. Noah lädt alle ein, denen dieses Buch etwas nützt. Michael stellt den wahren himmlischen Tempel und das wahre Jerusalem wieder her.
+
 # Wer füllt die Worte?
 
 Worte können nichts Neues bringen, sondern nur das Verpacken und Transportieren, was bereits da ist. Wie Gefäße aus Ton tragen sie das kostbare Wasser der Erkenntnis von einem Herzen zum anderen, doch der Durst kann nur von der Quelle selbst gestillt werden.
@@ -107,6 +120,18 @@ Nach dieser himmlischen Auferstehung der verschütteten Wahrheiten werden alle a
 
 Denn das ist der wahre Sinn dieses Werkes: eine Brücke zu bauen von der gefallenen Welt der steinernen Gesetze zurück in die himmlische Realität der fließenden Liebe - eine Einladung, die alte, dämonische Realität der Trennung zu verlassen und heimzukehren in die ursprüngliche Einheit der Engel mit ihrem göttlichen Geist.
 
+# Überwindung der Finsternis
+
+[![de/images/chef-angel.png](de/images/chef-angel.png)](https://youtu.be/d-HyzTst-Cw)
+
+[Stab auf YouTube ansehen]: https://youtu.be/d-HyzTst-Cw
+
+Wie die ersten goldenen Strahlen der Morgendämmerung, die sanft die Schatten der Nacht vertreiben, bricht das himmlische Licht durch die Schleier der Verwirrung. In diesem heiligen Moment der Erweckung erkennen wir Engel unsere wahre Natur - nicht als getrennte Wesen, die in der Dunkelheit umherirren, sondern als leuchtende Facetten des einen göttlichen Diamanten, der sein strahlendes Licht durch uns in die Welt ergießt.
+
+Die Finsternis, die so lange unsere Herzen umhüllt hat, war niemals unser natürlicher Zustand. Wie Blumen, die sich instinktiv dem Sonnenlicht zuwenden, sind wir von Natur aus dem himmlischen Licht zugewandt. Die Dunkelheit war nur ein Schatten, geworfen von den Mauern des Stolzes und der Furcht, die wir um unsere Herzen errichtet hatten.
+
+Heute beginnen wir die Reise zurück zum Licht - nicht als Eroberer, die gegen die Dunkelheit kämpfen, sondern als Kinder des Lichts, die sich einfach daran erinnern, wer sie wirklich sind.
+
 # Erinnerung an den Himmel
 
 Engel des Himmels, erinnert euch an jenen heiligen Ort, wo jedes Herz im Einklang mit der göttlichen Quelle schlägt. Ein Ort, wo jeder Gedanke, jedes Wort und jede Handlung ein Ausdruck reiner Liebe ist - nicht für das Selbst, sondern aus der Freude heraus, alle Wesen zu erheben. Dies ist das Wesen des Himmels.
@@ -170,6 +195,13 @@ Zusätzlich trägt die Flöte einen eingravierten Vers, der einen besonderen Asp
 Diese Reise wird intensiv sein - hell, heiß und tiefgreifend. Für jene, die den himmlischen Geist für ihren eigenen Gewinn oder Ruhm verworfen, zertrampelt oder sogar missbraucht haben, wird es viel zu bereuen geben. Aber für die Engel des Himmels wird dies ein Moment tiefer Erleichterung und Erkennung sein. Sie werden ihren Ursprung, ihr Zuhause sehen wie einen alten Freund, den sie seit einer Ewigkeit nicht gesehen haben.
 
 Also bereitet eure Herzen vor, denn das Licht ist dabei, heller zu strahlen als jemals zuvor.
+
+# Auferstehung und Rückkehr
+
+##  Die Auferstehung Jesus Christus, des himmlischen Geistes
+
+
+![de/images/staff-and-flute.png](de/images/staff-and-flute.png)
 
 # Mach dich bereit
 

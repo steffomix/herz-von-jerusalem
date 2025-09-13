@@ -205,15 +205,15 @@ Versucht nicht, den himmlischen Geist mit alten, gefallenen Wegen zu vermischen 
 
 ![de/images/staff-2.png](de/images/staff-2.png)
 
-Weiter zur zweiten Schale der Erdung durch Demut. Auf dem Stab ist es der zweite Vers, oder der erste Vers am zweiten Tag, und er lautet: "Versuche immer, der Geringste zu sein.". Auf unserer Flöte ist es das erste Loch für den tiefsten Ton.
+Weiter zur zweiten Schale der Erdung durch Demut. Auf dem Stab ist es der zweite Vers, oder der erste Vers am zweiten Tag, und er lautet: "Versuche stets, der Geringste zu sein.". Auf unserer Flöte ist es das erste Loch für den tiefsten Ton.
 
-Dieser Stab ist hier wie ein Schwert, das allen Stolz und alle Ehre wegschneidet. Er ist wie ein Schlackenscheider, der das Wertlose vom Wertvollen trennt. Wer den Weg zum Himmel wandeln will, muss bereit sein, seinen Stolz niederzulegen.
+Dieser Stab ist hier wie ein Schwert, das allen Stolz und alle Ehre wegschneidet. Er ist wie ein Schlacke-Abscheider, der das Wertlose vom Wertvollen trennt. Wer den Weg zum Himmel wandeln will, muss bereit sein, seinen Stolz niederzulegen.
 
 Denn je mehr die Kreativität und Schöpferkraft des himmlischen Geistes in und durch uns ausgedrückt wird, desto mehr Demut wird als Gegengewicht benötigt. Demut ist der Fels, der feste Grund, auf dem der Himmel gebaut ist, und seine Engel sind entsprechend standhaft demütig.
 
-Für die Gefallenen hingegen, die die verführerische Größe des Himmels absorbiert haben und im wahrsten Sinne damit verflochten sind, ist Demut wie ein geradezu tödliches, bitteres, absolut verabscheuungswürdiges Gift. Deshalb ist es leichter für ein Kamel, durch ein Nadelöhr zu gehen, als für einen stolzen, ehrenhaften Gefallenen, in den Himmel einzutreten.
+Wie Blumen, die ihre Kraft aus den tiefen Wurzeln der Erde ziehen, so schöpfen wir Engel unsere wahre Stärke aus der Demut - jener stillen Kraft, die uns mit der unendlichen Quelle allen Seins verbindet.
 
-Und nichts erfüllt einen ehrenhaften Gefallenen mit mehr Stolz und macht ihn reicher und mächtiger, als über pflichtbewusste, demütige Engel zu herrschen. Wie Blumen, die ihre Kraft aus den tiefen Wurzeln der Erde ziehen, so schöpfen wir Engel unsere wahre Stärke aus der Demut - jener stillen Kraft, die uns mit der unendlichen Quelle allen Seins verbindet.
+Für die Gefallenen hingegen, die die verführerische Größe des Himmels absorbiert haben und im wahrsten Sinne damit verflochten sind, ist Demut wie ein geradezu tödliches, bitteres, absolut verabscheuungswürdiges Gift. Und nichts erfüllt einen ehrenhaften Gefallenen mit mehr Stolz und macht ihn reicher und mächtiger, als über pflichtbewusste, demütige Engel zu herrschen. Deshalb ist es leichter für ein Kamel, durch ein Nadelöhr zu gehen, als für einen stolzen, ehrenhaften Gefallenen, in den Himmel einzutreten.
 
 ![de/images/flute-2.png](de/images/flute-2.png)
 
@@ -221,21 +221,23 @@ Und nichts erfüllt einen ehrenhaften Gefallenen mit mehr Stolz und macht ihn re
 
 ![de/images/staff-3.png](de/images/staff-3.png)
 
-Vergebung ist wie das Licht für uns Engel. Sie hilft uns zu sehen, macht den Weg frei und erlaubt es dem himmlischen Geist, seine Schönheit zu entfalten. Auf unserer Flöte ist sie das zweite Loch. Auf unserem Stab ist sie der dritte Satz, wo der Text nicht mehr gerade nach oben verläuft, sondern sich zu winden beginnt wie eine feurige Schlange, die sich um einen Ast windet. Und er lautet: "Versuche immer zu vergeben, wo du urteilen willst.".
+Vergebung ist wie eine lichtvolle Reinigung für uns Engel. Sie hilft uns wieder klar zu sehen, macht den Weg für die himmlische Kreativität wieder frei und erlaubt es dem himmlischen Geist, seine Schönheit zu entfalten. Auf unserer Flöte ist sie das zweite Loch. Auf unserem Stab ist sie der dritte Satz, wo der Text nicht mehr gerade nach oben verläuft, sondern sich zu winden beginnt wie eine feurige Schlange, die sich um einen Ast windet. Und er lautet: "Versuche stets zu vergeben, wo du richten willst.".
 
-Hier wird unser Stab wie ein Bohrer, um endlich aus der dämonischen Realität auszubrechen und ein Loch zu hinterlassen, einen bodenlosen Abgrund, wo Engel alles opfern, was für sie toxisch geworden ist. Unser Stab wird auch zu einer Fackel, die in Flammen steht, Licht zum Sehen gibt und gleichzeitig alles zerstört, was nicht zum Himmel gehört.
+Hier wird unser Stab zu einem Bohrer, zu einer Brechstange, um die dämonischen Mauern der Verurteilung zu durchbrechen. Zurückblickend hinterlässt er einen Durchbruch in die bodenlose Kanalisation der dämonische Realität.
 
-Wenn wir Engel unseren himmlischen Geist durch Schöpfungen, Handlungen und Spiele ausdrücken, können genau diese Dinge zu Hindernissen werden. Sie betäuben unser Mitgefühl und hindern uns daran, Einheit zu erfahren. Vergebung entfernt diese Hindernisse. Sie ist wie das Werfen von Abfall in eine bodenlose Kanalisation - das Betätigen der Spülung mit einigen Tränen und es in das dämonische Reich verschwinden lassen, wo der himmlische Geist abwesend ist. Deshalb sollten wir Engel besser nicht an dem festhalten, was geopfert werden soll.
+Wir werden einen Waschtisch darauf stellen, einen Abbort, wo wir alles hinein werfen, was für den Himmel nichts Taugt. 
 
-Vergebung ist Licht, weil sie uns erlaubt zu sehen. Wir können nur bemerken, was wir erlauben, uns zu erreichen und zu berühren. Sie reinigt, verfeinert und macht Platz für den himmlischen Geist, seine Schönheit zu offenbaren. Auf diese Weise ist Vergebung auch des Engels Art zu opfern.
+Vergebung ist wie das Werfen von Abfall in eine bodenlose Kanalisation - das Betätigen der Spülung mit einigen Tränen und es in das dämonische Reich verschwinden lassen, wo der himmlische Geist abwesend ist. 
 
-Wenn wir Engel in die dämonische Realität sehen und ihre wahre Natur offenbaren wollen, müssen wir uns selbst opfern und alles vergeben, was uns geschieht. Das ist der wahre Grund hinter Jesu Opfer. Aber die Gefallenen werden vor nichts zurückschrecken, um die Wahrheit für ihre eigenen Zwecke zu verdrehen und zu entstellen.
+Vergebung ist auch wie ein Licht, weil sie uns erlaubt zu sehen. Wir können nur bemerken, was wir erlauben, uns zu erreichen und zu berühren. Sie reinigt, verfeinert und macht Platz für den himmlischen Geist, seine Schönheit zu offenbaren. 
+
+Wenn wir Engel in die dämonische Realität sehen und ihre wahre Natur offenbaren wollen, müssen wir uns selbst in die dämonische Realität hinein Opfern und alles vergeben, was uns geschieht. Das ist der wahre Grund hinter Jesu Opfer. Aber die Gefallenen werden vor nichts zurückschrecken, um die Wahrheit für ihre eigenen Zwecke zu verdrehen und zu entstellen.
 
 Gefallene können nicht loslassen, vergeben nicht. Deshalb sehen sie nicht, haben kein Licht und kein Mitgefühl. Ihre Identität ist an ihre Schöpfungen, ihren Besitz und ihre vergangenen Erfahrungen gebunden. Zu vergeben würde für sie bedeuten, aufzuhören zu existieren. So bleiben sie gefangen in genau dem Schmutz, den Engel bereits geopfert haben.
 
 Einmal in die dämonische Kloake gefallen, die die Realität verzerrt, wird die Flucht nahezu unmöglich. Wie Schweine, die sich im Schlamm wälzen, klammern sich die Gefallenen an ihr Leid. Da ihnen der himmlische Geist fehlt, konstruieren sie eine Realität aus Gesetzen und Bestrafungen und versuchen, eine göttliche Ordnung nachzuahmen.
 
-Aber in Wahrheit sind sie nichts als wunderschön dekorierte Gräber, die von innen heraus verrotten. Und während ihr Verfall durch ihre polierten Fassaden sickert, werden ihre Gesetze immer detaillierter, immer starrer. Am Ende offenbaren all ihre Regeln und Bestrafungen nur ihre eigene Erbärmlichkeit.
+Aber in Wahrheit sind sie nichts als wunderschön dekorierte Gräber, die von innen heraus verrotten. Und während ihr Verfall durch ihre polierten Fassaden sickert, werden ihre Gesetze immer detaillierter, immer starrer. Am Ende sind all ihre Regeln und Bestrafungen eine Offenbarung ihrer eigenen Erbärmlichkeit.
 
 ![de/images/flute-3.png](de/images/flute-3.png)
 
@@ -243,19 +245,19 @@ Aber in Wahrheit sind sie nichts als wunderschön dekorierte Gräber, die von in
 
 ![de/images/staff-4.png](de/images/staff-4.png)
 
-Mit der vierten Schale verwandelt sich unser Stab in eine Blume, und wir finden die Worte: "Versuche immer gnädig zu sein, auch wo du dein Herz verschließen willst.".
+Mit der vierten Schale verwandelt sich unser Stab in eine Blume, und wir finden die Worte: "Versuche stets Großherzig zu sein, auch wo du dein Herz verschließen willst.".
 
 Auf unserer Flöte entspricht dies dem dritten Loch - einem Ton, der den Übergang vom Wiederfinden unseres himmlischen Geistes zu seinem Ausdruck markiert.
 
 Hier stoßen wir Engel, die unseren himmlischen Geist verkörpern und ausdrücken, mit Gefallenen zusammen, die ihn nachahmen. Gefallene suchen Anerkennung für ihre oberflächlichen guten Taten, und jene, die ihre Segnungen empfangen, fühlen sich oft benutzt - reduziert auf bloße Objekte, die es den Gefallenen erlauben zu glänzen und sich darauf etwas einzubilden, "gut" zu sein.
 
-Wir Engel suchen in unserer Demut keine Ehre oder Anerkennung. Wir wollen nicht einmal bemerkt werden. Für uns ist die größte Freude und Ehre, Gottes himmlischen Geist durch uns fließen zu lassen.
+Wir Engel suchen in unserer Demut keine Ehre oder Anerkennung. Wir wollen nicht einmal bemerkt werden. Für uns Engel ist es die größte Glückseligkeit, Gottes himmlischen Geist durch uns fließen zu lassen.
 
-Doch dieser engelhafte Blütenzustand ist zerbrechlich. Viele von uns werden verzehrt, zertrampelt oder in geistige oder emotionale Gefängnisse gesperrt. Manche werden unter dem Abfall religiöser Konformität begraben, während andere zu Ornamenten auf den Gräbern ihrer dämonischen Befehlshaber werden - Dekorationen für die bösen Systeme, die sie zerstörten, nur um später als Symbole falscher Heiligkeit zur Schau gestellt zu werden.
+Doch dieser engelhafte Blütenzustand ist sehr zerbrechlich. Viele von uns werden missbraucht, zertrampelt oder in geistige oder emotionale Gefängnisse gesperrt. Viele werden unter dem Abfall religiöser Konformität begraben, während andere zu Ornamenten auf den Gräbern ihrer dämonischen Befehlshaber werden - Dekorationen für die bösen Systeme, die sie zerstörten, nur um später als Symbole falscher Heiligkeit zur Schau gestellt zu werden.
 
 Sich zu öffnen und unsere himmlische Schönheit in einer dämonischen Umgebung zu offenbaren, ist zutiefst herausfordernd. Viele Engel verschwinden buchstäblich, ihre Reisen enden hier. Auf unserer Flöte wird dies durch die Lücke zwischen dem dritten und vierten Loch symbolisiert - eine dunkle Zeit der Qual, des Leidens und des Missbrauchs.
 
-Nur die Stärksten, Zähesten und jene mit außergewöhnlichen Heilfähigkeiten können dies ertragen und vorwärtsgehen, um sich noch größeren Herausforderungen zu stellen. Wie zarte Blumen, die durch Risse im Beton wachsen, finden wir Engel einen Weg, unsere Schönheit selbst in den widrigsten Umständen zu entfalten.
+Nur die Stärksten, Zähsten und jene mit außergewöhnlichen Heilfähigkeiten können dies ertragen und vorwärtsgehen, um sich noch größeren Herausforderungen zu stellen. Wie zarte Blumen, die durch Risse im Beton wachsen, finden wir Engel einen Weg, unsere Schönheit selbst in den widrigsten Umständen zu entfalten.
 
 ![de/images/flute-4.png](de/images/flute-4.png)
 
@@ -263,23 +265,23 @@ Nur die Stärksten, Zähesten und jene mit außergewöhnlichen Heilfähigkeiten 
 
 ![de/images/staff-5.png](de/images/staff-5.png)
 
-Lasst uns nun zur fünften Schale - der Schale des mutigen Bergsteigers - übergehen. Hier verwandelt sich unser Stab in einen Wanderstab, und wir finden die Worte: "Versuche immer zu lieben, wo keine Liebe ist.". Das erinnert uns daran, dass wenn das Leben leicht wird, wir wahrscheinlich auf dem falschen Weg sind und absteigen statt aufsteigen.
+Lasst uns nun zur fünften Schale - der Schale des mutigen Bergsteigers - übergehen. Hier verwandelt sich unser Stab in einen Wanderstab, und wir finden die Worte: "Versuche stets zu lieben, wo keine Liebe ist.". Das erinnert uns daran, dass wenn das Leben leicht wird, wir wahrscheinlich auf dem falschen Weg sind und absteigen statt aufsteigen.
 
 Auf unserer Flöte wird dies durch das vierte Loch repräsentiert - ein Ton, der eine neue Perspektive eröffnet. Plötzlich wird alles, was uns einst niederzudrücken, uns zu schaden suchte, zu einer Gelegenheit, unseren himmlischen Geist zu stärken und in der Liebe zu wachsen.
 
-Ein Gefallener versklavt uns? Danke - wir werden noch dienender im Herzen.
-Ein Gefallener ehrt uns? Danke - wir lernen, demütig zu bleiben.
-Ein Gefallener demütigt uns? Danke - wir werden vom Stolz befreit.
-Ein Gefallener verletzt uns? Danke - wir lernen, noch tiefer zu vergeben.
-Ein Gefallener fängt uns in einer toxischen Beziehung? Danke - wir verbinden uns tiefer mit unserer inneren Quelle der Heilung.
+Ein Dämon versklavt uns? Danke - wir werden noch dienender im Herzen.
+Ein Dämon ehrt uns? Danke - wir lernen, demütig zu bleiben.
+Ein Dämon demütigt uns? Danke - wir werden vom Stolz befreit.
+Ein Dämon missbraucht uns? Danke - wir lernen, noch tiefer zu vergeben.
+Ein Dämon fängt und verletzt uns in einer toxischen Beziehung? Danke - wir verbinden uns tiefer mit unserer inneren Quelle der Heilung.
 
-Auf diese Weise verstärkt jeder Akt dämonischen Missbrauchs nur das Licht, das wir aussenden - das wahre Licht, das die Natur sowohl der Engel als auch der Gefallenen offenbart. Das ist das Licht, das den Gefallenen fehlt und das sie nur reflektieren können. Es ist das Licht, das aufdeckt, warum Gefallene Schmutz meiden und an ihrem polierten, glänzenden Äußeren festhalten.
+Auf diese Weise verstärkt jeder Akt dämonischen Missbrauchs nur das Licht, das wir aussenden - das wahre Licht, das die Natur sowohl der Engel als auch der Gefallenen offenbart. Das ist das Licht, das den Dämonen fehlt und das sie nur reflektieren können. Es ist das Licht, das aufdeckt, warum Dämone Schmutz meiden und an ihrem polierten, glänzenden Äußeren festhalten. Damit sie mit dem Licht ihrer gefangen gehaltenen Engel glänzen können.
 
-Die widerliche Stimmung und der Schmutz, den die Gefallenen auf uns werfen, mögen unser engelhaftes Licht vorübergehend trüben, aber sie erhöhen auch die Hitze unserer Liebe, bis all der Schmutz als geschmolzene Lava erzwungener Umkehr in die Haut der dunklen Existenz der Gefallenen zurückkehrt.
+Die widerliche Stimmung und der Schmutz, den die Dämone auf uns werfen, mögen unser engelhaftes Licht vorübergehend trüben, aber sie erhöhen auch die Hitze unserer Liebe, bis all die auf uns geworfenen Steine als geschmolzene Lava zu den Dämonen zurück kehrt und sie in einem wahren Feuersee erzwungener Einsicht und Reue stehen.
 
 Mit jedem schwierigen Schritt, den wir den Berg von Gottes himmlischem Geist hinaufsteigen, erfahren wir mehr von seiner wahren Herrlichkeit. Sie fließt durch uns wie ein Fluss reiner Glückseligkeit und Ruhe und erfüllt uns mit einem Gefühl göttlicher Verbindung und Bestimmung.
 
-Aber je höher wir steigen, desto heller wird unser Licht und desto heißer unsere Liebe. Während sich die Schönheit des Himmels in ihrer Fülle offenbart, zeigen sich auch die Tiefen der Dunkelheit in der Realität der Gefallenen. Der Kontrast kann überwältigend sein - atemberaubende Offenbarungen verlangen oft eine Pause, einen Moment der Ruhe, um die Weite von Gottes Königreich zu verdauen und die Freiheit, die wir haben, seinen Geist anzunehmen oder abzulehnen, zusammen mit dem Leben und den Herausforderungen, die er bringt.
+Aber je höher wir steigen, desto heller wird unser Licht und desto heißer unsere Liebe. Während sich die Schönheit des Himmels in ihrer Fülle offenbart, zeigen sich auch die Tiefen der Dunkelheit in der Realität der Dämone. Der Kontrast kann überwältigend sein - atemberaubende Offenbarungen verlangen oft eine Pause, einen Moment der Ruhe. Um die Weite von Gottes Königreich zu verdauen und die Freiheit, die wir haben, seinen Geist anzunehmen oder abzulehnen. Zusammen mit dem Leben und den Herausforderungen, die das leben mit sich bringt.
 
 ![de/images/flute-5.png](de/images/flute-5.png)
 

@@ -95,7 +95,7 @@ file.write(text)
 file.close()
 print(str(len(text)) + ' chars written to ' + readmeFile)
 
-# subprocess.run(['quarto', 'render'])
+subprocess.run(['quarto', 'render'])
 
 dest = '/Das-Herz-von-Jerusalem'
 shutil.copy(readmeFile, '.' + dest + dest + '.md')

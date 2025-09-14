@@ -42,13 +42,17 @@ Eine Herzenshaltung trifft keine Wahl und berechnet nicht, kann nicht mit Gebote
 
 Dieses Buch enthüllt den Geist der Engel und Dämonen und versiegelt ihn, wodurch kein Wandel mehr möglich ist. Denn eine himmlische Herzenshaltung, die zur scheinheiligen Selbsterlösung missbraucht wird, verliert ihre Reinheit und findet keinen Eingang in die himmlischen Sphären.
 
-Wie das Licht der Morgendämmerung die Schatten endgültig vertreibt, so bringt diese Enthüllung eine unwiderrufliche Klarheit. Die himmlische Herzenshaltung kann nicht einfach angenommen werden, um sich von den dämonischen Ketten zu befreien - sie ist etwas, das weit darüber hinausgeht, eine Gnade, die von innen erwacht.
+Wie das Licht der Morgendämmerung die Schatten endgültig vertreibt, so bringt diese Enthüllung eine unwiderrufliche Klarheit. Die himmlische Herzenshaltung kann nicht einfach angenommen werden, um sich von den dämonischen Ketten zu befreien - sie ist etwas, das weit darüber hinausgeht, eine Gnade, die von innen erwacht. 
 
-Jedoch, sobald das Wesen der Dämonen enthüllt wurde, erfinden sie ein neues Wort, eine neue Hülle, einen neuen Körper, ein neues Exil, um sich darin zu verbergen, um sich dann selbst neu zu entdecken. Zu entdecken, dass sie durch die weiteren Hüllen sich nur noch weiter von ihrer inneren Verbindung zum göttlichen Geist abgeschirmt haben und dadurch nur noch schlimmer geworden sind.
+Wir Engel des Himmels bringen unsere innere Herzenshaltung auf verschiedenste Weise zum Ausdruck und tragen diesen Ausdruck wie Kleider, die sowohl umhüllen als auch die innere Herzenshaltung verbergen. Und hier ist der wohl grundlegendste Unterschied zwischen Engeln und Dämone.
 
-Wodurch offenbar wird, dass die Mauer zum Himmel nicht von den Engeln gebaut wurde. Wie kristallklare Bergquellen das Gestein nicht trüben, sondern dessen Beschaffenheit offenbaren, so enthüllt das Licht der Engel die Abscheulichkeit der Dämonen. Diese empören sich und werfen steinerne Gesetze nach den Engeln, von denen jeder ein weiterer Stein in der Mauer zum Himmel wird. Die Mauer wird schließlich zu ihrem Grab aus Gesetzen, die immer weniger Freiheiten zulässt und dadurch immer enger wird, bis die Dämonen schließlich selbst zu Stein geworden sind.
+Dämonen lehnen die himmlische Herzenshaltung ab, doch schmücken sie sich gerne mit himmlischen Kleidern. Diese Kleider jedoch, getragen ohne die Reinheit der himmlischen Herzenshaltung, beginnen zu verrotten und zu verfallen. Was äußerlich glänzt, wird innerlich von Fäulnis zerfressen, denn ohne die lebendige Verbindung zum göttlichen Geist verlieren selbst die schönsten Gewänder ihren Glanz und zerfallen zu Staub.
 
-Dieses Büchlein ist ein Liebesregen vom Himmel. Für Engel ein Segen, der ihre Erinnerung an den Himmel erweckt. Für Dämonen zunächst ein Fluch, der ihre Finsternis offenbart - doch selbst dieser Fluch trägt in sich den Keim der Erlösung, denn das Licht scheut keine Dunkelheit und die Liebe fürchtet keinen Hass.
+Aber das ist noch nicht alles. Dämonen benutzen die gestohlenen Kleider als Köder, um Engel damit einzuwickeln, gefangen zu nehmen und in Besitz zu bringen, um sich mit ihnen zu umkleiden und mit ihrem Glanz zu schmücken.
+
+Darum seht euch vor, dass ihr Engel des Himmels nicht zum Raub der Dämone werdet und verhüllt euren Glanz in der Gegenwart der Finsternis. 
+
+Die Aufgabe der Dämone ist es, alles zu zerstören was die Engel geopfert haben weil es für den Himmel nichts taugt. Sie sind die Kompostwürmer der Hölle, der Mülleimer der Schöpfung. Sie haben sich durch ihre Lebensweise für diese Aufgabe frei entschieden. Der Weg zurück in den Himmel ist nur über den zweiten Tod möglich, über die vollständige Zersetzung ihrer Identität, bis sie den Zustand ihres Ursprungs erreicht haben. Wo sie mit dem Göttlichen wieder verschmelzen um dann erneut ausgesät werden zu können.
 
 ### Das Geheimnis von Zeit
 

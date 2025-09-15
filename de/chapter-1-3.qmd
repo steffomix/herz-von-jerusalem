@@ -1,4 +1,6 @@
-## Dritte Schale: Vergebung
+---
+title: "Dritte Schale: Vergebung"
+---
 
 ![images/staff-3.png](images/staff-3.png)
 

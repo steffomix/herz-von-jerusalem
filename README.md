@@ -16,13 +16,24 @@ Wait on this Channel for the LET's GO call: <https://www.youtube.com/@MessiahHas
 Dieses Buch ist nicht kostenlos.
 Wenn das vernichten, verbrennen, also das wahrhaftige opfern von etwas Geld für dich nicht befreiend wirkt, dann ist dieses Buch für dich vollkommen nutzlos.
 
+Im ersten Teil dieses Buches wird zunächst der wahre himmlische Geist von Jesus Christus wieder hergestellt.
+
+Im zweiten Teil dieses Buches wird die wahre himmlische Ordnung von Moses Wieder hergestellt.
+
+Der dritte Teil beschreibt Zeitpunkt, Ort und Inhalte von einem besonderen Ereignis, in dem der wahre Geist von Noah und Erzengel Michael wieder hergestellt werden. Noah lädt alle ein, denen dieses Buch etwas nützt und der Rest geht durch seinen Waschtisch. Michael stellt den wahren himmlischen Tempel und das wahre Jerusalem wieder her.
+
 Damit fahre ich mit diesem Buch genau dort fort, mache genau dort weiter, wo Jesus Christus unterbrochen wurde.
 
-Im ersten Teil dieses Buches wird zunächst der wahre Geist von Jesus Christus wieder hergestellt.
+Die Fortsetzung besteht darin, das alles wieder zurück gesetzt auf den Ursprung mit Ausnahme von allen und allem das den Himmlischen Geist abgelehnt hat.
 
-Im zweiten Teil dieses Buches wird der wahre Geist von Moses Wieder hergestellt.
+Dies wird so lange halten wie:
+| alles -1- ist im Geiste des Himmels,
+| der himmlische Geist -0- Makel hat,
+| die himmlische Ordnung -0- Makel hat.
+| der himmlische Tempel -0- Makel hat.
 
-Der dritte Teil beschreibt Zeitpunkt, Ort und Inhalte von einem besonderen Ereignis, in dem der wahre Geist von Noah und Erzengel Michael wieder hergestellt werden. Noah lädt alle ein, denen dieses Buch etwas nützt. Michael stellt den wahren himmlischen Tempel und das wahre Jerusalem wieder her.
+Die Dauer ist also nicht durch einen durch -1-0-0-0- Jahre zählbaren Zeitraum begrenzt, wie unsere geistlosen Dämone von ihren stolzen Kanzeln predigen. Sondern er beschreibt einen geistigen, einen himmlischen Zustand.
+Ein Zustand, der schon dann längst nicht mehr himmlisch ist, wenn ihre Bewohner anfangen, stolz die Jahre des Bestandes ihres vermeintlichen Himmelreichs zu Zählen. Eines Himmelreichs, das gar keine zählbare Dauer hat.
 
 # Wer füllt die Worte?
 
@@ -237,7 +248,7 @@ Versucht nicht, den himmlischen Geist mit alten, gefallenen Wegen zu vermischen 
 
 ![de/images/flute-1.png](de/images/flute-1.png)
 
-## Zweite Schale: Demut
+# Zweite Schale: Demut
 
 ![de/images/staff-2.png](de/images/staff-2.png)
 
@@ -253,7 +264,7 @@ Für die Gefallenen hingegen, die die verführerische Größe des Himmels absorb
 
 ![de/images/flute-2.png](de/images/flute-2.png)
 
-## Dritte Schale: Vergebung
+# Dritte Schale: Vergebung
 
 ![de/images/staff-3.png](de/images/staff-3.png)
 
@@ -277,7 +288,7 @@ Aber in Wahrheit sind sie nichts als wunderschön dekorierte Gräber, die von in
 
 ![de/images/flute-3.png](de/images/flute-3.png)
 
-## Vierte Schale: Anmut
+# Vierte Schale: Großherzigkeit
 
 ![de/images/staff-4.png](de/images/staff-4.png)
 
@@ -297,7 +308,7 @@ Nur die Stärksten, Zähsten und jene mit außergewöhnlichen Heilfähigkeiten k
 
 ![de/images/flute-4.png](de/images/flute-4.png)
 
-## Fünfte Schale: Trotzdem lieben
+# Fünfte Schale: Liebe wo keine Liebe ist
 
 ![de/images/staff-5.png](de/images/staff-5.png)
 
@@ -321,7 +332,7 @@ Aber je höher wir steigen, desto heller wird unser Licht und desto heißer unse
 
 ![de/images/flute-5.png](de/images/flute-5.png)
 
-## Sechste Schale - Heiliger himmlischer Geist
+# Sechste Schale - Liebe, dein größter Schatz
 
 ![de/images/staff-6.png](de/images/staff-6.png)
 
@@ -329,27 +340,31 @@ Mit dem fünften und letzten Loch unserer Flöte erinnern wir uns nicht nur an d
 
 Hier verwandelt sich unser Stab in ein feuriges Schwert der Macht, dessen mystische Symbole mit alter Weisheit glühen - eine Waffe, die nur von jenen ergriffen wird, die den monströsen Schrecken des Abgrunds gegenübergetreten und sie besiegt haben.
 
-Die sechste Schale trägt die Botschaft: "Lass die Liebe immer deinen kostbarsten Schatz sein.".
+Hier verwandelt sich unser Stab in ein feuriges Flammenschwert, versehen mit mystischen Versen, dessen wahre Bedeutung nur der kennt, der diesen schweren Weg gegangen ist.
+
+Für Dämone ist es das begehrteste Folterinstrument von allen in der gesamten Schöpfung. In ihren Händen wird dieser Stab zum Dämonenspeer, mit dem sie ihren Opfern zu verstehen geben, warum sie im Himmel nichts zu suchen haben. Ihnen bedingungslos zu dienen haben, weil das der einzige Weg zurück zum Himmel sei. Dämone kennen den himmlischen Geist sehr wohl und wissen bestens ihn für ihre Zwecke zu missbrauchen.
+
+Die sechste Schale trägt die Botschaft: "Lass die Liebe stets deinen kostbarsten Schatz sein.".
 
 Liebe existiert außerhalb der Zeit, frei von den Lasten vergangener Urteile und zukünftiger Erwartungen. Während unser Verstand in der Ungewissheit verweilt, bewegt sich die Liebe mit Vertrauen und Klarheit.
 
-Himmlische Liebe ist ein Eintopf aus selbstlosem Dienst, tiefster Demut, bedingungsloser Vergebung und Dankbarkeit ohne Erwartungen. Mit ihrem Dienst bewegt sich die Liebe durch die Herrschaft der Gefallenen wie lebensnotwendiges Öl in einem Getriebe. Mit Demut mildert sie ihre aggressiven Angriffe. Mit Vergebung wird sie unverwundbar. Mit Anmut wird sie unerschöpflich. Und weil der einzige Grund für Liebe die Liebe selbst ist, wird sie zu einem unbesiegbaren Krieger, der vor nichts haltmacht.
+Himmlische Liebe ist ein Heilöl aus selbstlosem Dienst, tiefster Demut, bedingungsloser Vergebung und unerschöpflicher Großherzigkeit. Mit ihrem Dienst bewegt sich die Liebe durch die Herrschaft der Dämone wie Öl in einem Getriebe. Öl, das die dämonischen Zahnräder auf Abstand hält, damit sie nicht aneinander geraten und sich gegenseitig aufreiben.
 
-So wie jede Suppe ihr eigenes Aroma hat, das ihre Zutaten widerspiegelt, so haben auch Engel und Gefallene ihren eigenen "Duft" - eine intensiv kraftvolle Essenz, die ihre Natur offenbart. Für Engel ist diese Essenz ein strahlender, überwältigender Duft der Reinheit und Liebe. Für Gefallene ist es ein erstickender Gestank von Verfall und Stolz.
+Mit Demut mildert das himmlische öl ihre aggressiven Angriffe. Mit Vergebung wird es unverwundbar. Mit Großherzigkeit wird es unerschöpflich ausdauernd. Und weil der einzige Grund für Liebe die Liebe selbst ist, wird sie zu einem unbesiegbaren Krieger, der vor nichts haltmacht.
 
-Mit der legendären Kraft der Liebe erobern wir Engel die Herrschaft der Gefallenen über den Verstand und zähmen ihn zu einem Werkzeug, um unseren himmlischen Geist auszudrücken. Und die erste Aufgabe für dieses gezähmte Werkzeug ist diese: Schweige, stehe fest und höre tief!
+So wie jedes Öl sein eigenes Aroma hat, das seine Zutaten widerspiegelt, so haben auch Engel und Dämone ihren eigenen "Duft" - eine intensiv kraftvolle Essenz, die ihre Natur offenbart. Für Engel ist diese Essenz ein strahlender, überwältigender Duft der Reinheit und Liebe. Für Dämone ist es ein erstickender Gestank von Verfall und verrottendem Stolz.
 
-Gefallene hören auch vor nichts auf, um die kostbarsten Schätze der Engel zu beanspruchen. Sie verpackten die spirituelle Essenz der Engel - den "Duft", der ihre demütige Diener-Tendenz zu handeln widerspiegelt - in etwas namens "Karma" und banden Seelen an einen endlosen Kreislauf der Schuld. Um die Täuschung zu vertiefen, malten sie den dämonischen Missbrauch als göttliche Prüfung, eine heilige Pflicht, ihnen für eine Erlösung zu dienen, die niemals kommen würde.
+Dämone machen vor nichts halt, um an die kostbarsten Schätze der Engel zu kommen. Sie verpackten die spirituelle Essenz der Engel - den "Duft", der ihre demütige Diener-Tendenz zu handeln widerspiegelt - in etwas namens "Karma" und banden Seelen an einen endlosen Kreislauf der Schuld. Um die Täuschung zu vertiefen, malten sie den dämonischen Missbrauch als göttliche Prüfung, eine heilige Pflicht, ihnen für eine Erlösung zu dienen, die niemals kommt.
 
-Wir alle geraten manchmal in Schwierigkeiten und brauchen Unterstützung, um voranzukommen. Aber während Engel nur genug Unterstützung suchen, um wieder auf eigenen Füßen zu stehen, werden Gefallene abhängig und fordern endlose Hilfe.
+Wir alle geraten manchmal in Schwierigkeiten und brauchen Unterstützung, um voranzukommen. Aber während Engel nur genug Unterstützung suchen, um wieder auf eigenen Füßen zu stehen, gewöhnen sich Dämone daran um sie am Ende als von Engeln zu armen, hilflos gemachten Opfern einzufordern.
 
-Gefallene sind nur in den zwei Talenten eines Parasiten und eines Schmarotzers gut: Ein Parasit ist jemand, der in fremdes Eigentum eindringt oder es in Besitz nimmt und sich verhält, als würde es ihm gehören. Ein Schmarotzer ist jemand, der die maximal mögliche Belohnung für den minimal möglichen Aufwand erwartet - oder sogar fordert. Und was beide gemeinsam haben, ist, dass sie ihre Größe daran messen, wie viele gehorsame Diener ihnen selbst bei den kleinsten Problemen zu Hilfe eilen.
+Dämone sind nur in den zwei Talenten eines Parasiten und eines Schmarotzers gut: Ein Parasit ist jemand, der in fremdes Eigentum eindringt oder es in Besitz nimmt und sich verhält, als würde es ihm gehören. Ein Schmarotzer ist jemand, der die maximal mögliche Belohnung für den minimal möglichen Aufwand erwartet - oder sogar fordert. Und was beide gemeinsam haben, ist, dass sie ihre Größe daran messen, wie viele gehorsame Diener ihnen selbst bei den kleinsten Problemen zu Hilfe eilen.
 
-Dieser Missbrauch des himmlischen Geistes macht die Gefallenen noch schlimmer, und wir Engel müssen der traurigen Wahrheit ins Auge sehen, dass wir nicht helfen können und ihnen den Rücken kehren müssen.
+Die helfende Hand der Engel, von Dämonen zum Missbrauch des himmlischen Geistes verdreht, macht die Dämone nur noch schlimmer. Sodass wir Engel der traurigen Wahrheit ins Auge sehen müssen, dass wir nicht helfen können und die einzige Hilfe darin besteht, ihnen den Rücken zu kehren, damit sie ihrem Ende entgegen gehen können. Dem Ende der auch der Anfang ist.
 
 ![de/images/flute-6.png](de/images/flute-6.png)
 
-## Siebte Schale - Gottes Stimme
+# Siebte Schale - Göttliche Liebe
 
 ![de/images/staff-7.png](de/images/staff-7.png)
 

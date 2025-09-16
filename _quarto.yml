@@ -2,7 +2,7 @@ project:
   type: book
   output-dir: Das-Herz-von-Jerusalem
 book:
-  title: Das Herz von Jerusalem
+  title: "Das Herz von Jerusalem"
   language: de
   chapters:
     - index.qmd
@@ -43,6 +43,9 @@ book:
       - de/chapter-2-5.qmd
       - de/chapter-2-6.qmd
       - de/chapter-2-7.qmd
+      - de/chapter-2-8.qmd
+      - de/chapter-2-9.qmd
+      - de/chapter-2-10.qmd
       - de/chapter-2-epilogue-1.qmd
     - part: "Jerusalems Auferstehung"
       chapters:

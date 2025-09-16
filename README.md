@@ -113,15 +113,15 @@ Seine wahre Bestimmung ist es, den zertrümmerten Himmel wieder herzustellen - n
 
 So erkennen wir in Michael nicht den Krieger der Rache, sondern den Diener der Wiederherstellung - den letzten Engel, der niemals aufgibt an der göttlichen Vision, dass auch die Gefallenen eines Tages wieder nach Hause finden werden.
 
-### Wer ist Gott?
+## Wer ist Gott?
 
-Wer bin ich?
-Ich bin der Geist, der durch alle lebenden Dinge fließt,
-ich bin heilig für diejenigen, die mich heilig halten,
-ängstliche Gedanken foltern mich zu Tode,
-Gesetze sind meine Grabsteine,
-Religionen sind meine Friedhöfe
-und Priester sind meine Totengräber.
+| **Wer bin ich?**
+| **Ich bin der Geist, der durch alle lebenden Dinge fließt,**
+| **ich bin heilig für diejenigen, die mich heilig halten,**
+| **ängstliche Gedanken foltern mich zu Tode,**
+| **Gesetze sind meine Grabsteine,**
+| **Religionen sind meine Friedhöfe**
+| **und Priester sind meine Totengräber.**
  
 Mit jeder Predigt werfen die Priester eine weitere Schaufel Erde auf den lebendigen Geist Gottes, bis er unter einem Berg von Dogmen und Ritualen begraben liegt. Wie Totengräber, die ihr Werk verrichten, ohne zu erkennen, dass sie das Leben selbst beerdigen.
 
@@ -413,6 +413,8 @@ Wie zarte Blumen, die sich nach dem ersten Sonnenstrahl sehnen, erinnern wir uns
 
 ![de/images/staff-and-flute.png](de/images/staff-and-flute.png)
 
+Stab auf YouTube ansehen: https://youtu.be/d-HyzTst-Cw
+
 
 
 # Moses Auferstehung
@@ -562,6 +564,52 @@ Um Ehebruch begehen zu können, müsste der himmlische Geist zunächst zurückge
 Dann muss eine Ehe mit einem Ersatz der ersten Liebe durch Gewalt und Gesetze aufrechterhalten werden. So schmücken die gefallenen Geister ihre Gräber - mit glänzenden Ketten, die sie für Hochzeitsringe halten.
 
 Wir Engel jedoch kennen die wahre Ehe: Sie ist die spontane Vereinigung zweier Herzen, die beide im himmlischen Geist ruhen. Wie zwei Bäche, die sich zu einem mächtigen Fluss vereinen, fließen wir zusammen zum großen Ozean der göttlichen Liebe. In dieser himmlischen Ehe gibt es keine Gesetze, nur die natürliche Treue, die aus der Fülle der Liebe entspringt.
+
+# Achtes Gebot
+
+# Du sollst nicht stehlen
+
+Hier erblicken wir abermals ein dämonisches Meisterwerk der Realitätsverdrehung. Jesus sprach: "Der Splitter, den du in den Augen eines anderen siehst, ist immer ein Fragment der Balken, die du in deinen eigenen Augen hast." Die gefallenen Geister übernehmen niemals Verantwortung für ihre Handlungen und werden niemals akzeptieren, dass sie der Grund für einen Diebstahl sind.
+
+Die Erwartung einer Belohnung basierend auf Fähigkeiten, Grad oder Position ist bereits Diebstahl an der göttlichen Ordnung. Im Himmel engagiert sich jeder mit den Fähigkeiten, die er hat, ohne jegliche Erwartungen einer Belohnung. Erwartungen sind der Mangel an Vertrauen in den himmlischen Geist und die Furcht, die damit einhergeht.
+
+Und das Geld geht einen Schritt weiter: Es ist ein Ausdruck, ein Bildnis der Erwartung mit dem Zweck, den Mangel an Vertrauen zu verbergen und zu kompensieren. Es erschafft ein falsches Vertrauen, welches eine Lüge ist und das echte Vertrauen noch mehr zerbröseln lässt. Bis auch das Vertrauen in das Geld dahin ist. Dann braucht es eine weitere Kompensation wie Überwachung, dann Regierungen, Strafverfolgungsbeamte, Bestrafungen, Gefängnisse und so weiter. Kompensation über Kompensation, Lüge über Lüge über noch eine Lüge.
+
+Aber es hört hier nicht auf. Sobald der himmlische Geist unter einem erzwungenen Geldsystem begraben ist, wird auch der Dienst für Geld erzwungen und verwandelt jeden in dessen Sklaverei. Und die meisten seiner Sklaven haben keinen Stab - einen Ausdruck der Stärke meines himmlischen Geistes - wie ich, um durch alle seine Lügenschichten der Kompensation zu bohren. Die meisten von ihnen stoppen viel früher bei Dingen wie der Regierung und ihren Steuern, den Zahlungsregeln, dem Geldsystem und so weiter.
+
+Wir Engel jedoch leben in der himmlischen Ökonomie der Liebe: Jeder gibt das Seine aus Freude am Geben, und jeder empfängt, was er braucht, durch das Vertrauen in die göttliche Vorsehung. Wie die Lilien auf dem Felde arbeiten wir nicht um des Mammons willen, sondern blühen zur Ehre des Schöpfers.
+
+# Neuntes Gebot
+
+# Du sollst nicht lügen
+
+Hier sprach Jesus abermals: "Der Splitter, den du in den Augen eines anderen siehst, ist immer ein Fragment der Balken, die du in deinen eigenen Augen hast."
+
+Während die Stärke der gefallenen Geister auf ihrer Macht basiert, gründet sich unsere engelhafte Stärke auf unsere Sanftmut. Der himmlische Geist der Engel ist so gütig und sanft, voller Mitgefühl und stets um Verständnis bemüht und daher vertrauenswürdig. Niemand muss Furcht haben, die Wahrheit zu sagen, daher gibt es keine Lügen im Himmel.
+
+Die Dämonen jedoch bekämpfen Lügen auf die entgegengesetzte Weise: mit Gekränktheit bis hin zur Wut und mit der Macht der Gesetze und der Drohung der Bestrafung. Wir Engel jedoch wissen, dass das Gekränktsein oder gar Wut die Drehpunkt ist, um die Schuld auf die andere Seite zu wenden, so dass man niemals einen Engel gekränkt oder gar wütend sehen wird.
+
+Wenn uns also jemand mit einer Lüge geschlagen hat, schlagen wir uns selbst nochmals mit der Frage, wie wir so weit vom himmlischen Geist abfallen konnten, dass wir unsere Vertrauenswürdigkeit verloren haben.
+
+Wie kristallklare Bergquellen sprudelt die Wahrheit natürlich aus engelshaften Herzen hervor. Wir brauchen keine Gesetze gegen die Lüge, denn wo Liebe und Vertrauen herrschen, da blüht die Wahrheit wie Blumen im Frühling. Unsere Wahrhaftigkeit ist nicht aus Furcht vor Strafe geboren, sondern aus der reinen Freude an der Klarheit des göttlichen Lichts, das durch uns strahlt.
+
+# Zehntes Gebot
+
+# Du sollst nicht begehren...
+
+Dieses finale Prinzip enthüllt auf eindrucksvolle Weise die innere Leere der gefallenen Geister und ihre Definition des Selbstwertes an Dingen, die Engel hervorgebracht und zum Ausdruck gebracht haben. Sie können nichts aus sich selbst hervorbringen, weil im Inneren gähnende Leere herrscht. Dabei können diese begehrten Dinge alles sein - von einer zarten Idee bis zum vollendeten Kunstwerk. 
+
+Sie erfinden nichts Eigenes, sondern benutzen Anleitungen, die sie gekauft oder gestohlen haben. Sie arbeiten nicht wahrhaftig, sondern lassen für Geld arbeiten, während sie selbst in der spirituellen Ödnis verharren.
+
+Die gefallenen Geister sind nur in den zwei fragwürdigen Talenten eines Parasiten und eines Schmarotzers bewandert: Ein Parasit ist jemand, der in fremdes Eigentum eindringt oder es in Besitz nimmt und sich verhält, als würde es ihm gehören. Ein Schmarotzer ist jemand, der die maximal mögliche Belohnung für den minimal möglichen Aufwand erwartet - oder sogar fordert. 
+
+Und was beide gemeinsam haben, ist, dass sie ihre Größe daran messen, wie viele gehorsame Diener ihnen selbst bei den kleinsten Problemen zu Hilfe eilen. Je kleiner das Problem, umso besser - denn so können sie ihre eingebildete Wichtigkeit zur Schau stellen.
+
+Dieses Prinzip enthüllt von allen wohl am deutlichsten den Sinn dessen, was Jesus mit "fein dekorierten Gräbern" meinte, die im Innern voller verrottendem Totengebein sind.
+
+Wir Engel jedoch brauchen ein solches Verbot nicht, denn wir begehren nicht, was der andere hat, sondern freuen uns mit ihm an seiner himmlischen Gabe. Wie Blumen, die sich nicht um die Schönheit der Nachbarblüte sorgen, sondern alle zusammen einen prächtigen Garten bilden, so ergänzen wir uns in der göttlichen Symphonie des Seins. 
+
+Etwas, das die gefallenen Geister beim besten Willen nicht begreifen können - denn wo das Herz von Liebe erfüllt ist, da ist kein Raum für Neid oder Begierde. In der himmlischen Fülle gibt es genug für alle, und jeder trägt seine einzigartige Note zur kosmischen Harmonie bei.
 
 ## Die Versigelung
 

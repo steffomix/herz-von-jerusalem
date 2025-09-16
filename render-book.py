@@ -18,17 +18,19 @@ class Page:
     def __init__(self, filename, addPagebreak):
         self.addPagebreak = addPagebreak
         self.filename = filename
+        self.text = ''
         
-        if  not(os.path.exists(filename)):
-            open(filename, 'w').close()
-        
-        file = open(filename, 'r')
-        self.text = file.read().strip()
-        file.close()
+        if  os.path.exists(filename):
+            file = open(filename, 'r')
+            self.text = file.read().strip()
 
-        # Adjust image paths for German version
-        self.text = self.text.replace('![images/', '![de/images/')
-        self.text = self.text.replace('](images/', '](de/images/')
+            # Adjust image paths for German version
+            self.text = self.text.replace('![images/', '![de/images/')
+            self.text = self.text.replace('](images/', '](de/images/')
+            return
+
+        if(self.text == ''):
+            self.text = '\r\n\r\n' + '# ' + filename.strip().strip('"') + '\r\n'
 
         
     # Returns the text content of the page, optionally adding a page break.
@@ -66,6 +68,7 @@ class Page:
 # extract pages from _quarto.yml
 
 dir = 'de/'
+part = '- part: '
 file = open('_quarto.yml', 'r')
 lines = file.readlines()
 file.close()
@@ -73,9 +76,9 @@ fileLines = [line.strip() for line in lines if line.strip() != '']
 
 pages = [Page('index.qmd', True)]
 for line in fileLines:
-    if(line.startswith('- part: ' + dir)):
-        f = line.split(dir)[1].strip()
-        pages.append(Page(dir + f, True))
+    if(line.startswith(part)):
+        header = line.split(part)[1].strip()
+        pages.append(Page(header, True))
         continue
     
     if(line.startswith('- ' + dir)):

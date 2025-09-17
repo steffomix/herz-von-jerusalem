@@ -45,7 +45,12 @@ Dies wird so lange halten wie:
 Die Dauer ist also nicht durch einen durch -1-0-0-0- Jahre zählbaren Zeitraum begrenzt, wie unsere geistlosen Dämone von ihren stolzen Kanzeln predigen. Sondern er beschreibt einen geistigen, einen himmlischen Zustand.
 Ein Zustand, der schon dann längst nicht mehr himmlisch ist, wenn ihre Bewohner anfangen, stolz die Jahre des Bestandes ihres vermeintlichen Himmelreichs zu Zählen. Eines Himmelreichs, das gar keine zählbare Dauer hat.
 
-# Wer füllt die Worte?
+# Wer füllt die Worte mit Leben?
+
+Worte sind das Ende und der Tod.
+
+Wenn die Engel des Himmels sich der physischen Worte bedienen müssen um euch zu erreichen, dann ist das Ende gekommen.
+Für mich ist dies ein trauriger Moment, denn mit diesen Worten graviere ich eure Namen in eure Grabsteine.
 
 Worte können nichts Neues bringen, sondern nur das Verpacken und Transportieren, was bereits da ist. Wie Gefäße aus Ton tragen sie das kostbare Wasser der Erkenntnis von einem Herzen zum anderen, doch der Durst kann nur von der Quelle selbst gestillt werden.
 

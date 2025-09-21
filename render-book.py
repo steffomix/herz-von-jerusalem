@@ -106,4 +106,3 @@ shutil.copy('.' + dest+ '/index.html', '.' + dest + dest + '.html')
 
 
 
-

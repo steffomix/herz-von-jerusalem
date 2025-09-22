@@ -14,6 +14,7 @@ title: "Das Herz von Jerusalem"
 
 <!-- ![de/images/blossom-crown.png](de/images/blossom-crown.png) -->
 
-| Wie eine Glocke klingt
-| weist du erst
-| wenn du sie schlägst
+
+![de/images/two-witnesses.jpg](de/images/two-witnesses.jpg) 
+
+

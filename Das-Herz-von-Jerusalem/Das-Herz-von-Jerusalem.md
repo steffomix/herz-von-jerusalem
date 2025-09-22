@@ -12,9 +12,8 @@
 
 <!-- ![de/images/blossom-crown.png](de/images/blossom-crown.png) -->
 
-| Wie eine Glocke klingt
-| weist du erst
-| wenn du sie schlägst
+
+![de/images/two-witnesses.jpg](de/images/two-witnesses.jpg)
 
 
 
@@ -634,7 +633,27 @@ Der Herr der Finsternis wurde vom Herrn des Lichts besiegt. **Hoch lebe der Herr
 
 # Day 3: Resurrection of Jerusalem
 
-Der ewige und lebendige Tempel von Jerusalem ist ein Ausdruck des ewigen und lebendigen himmlischen Geistes selbst. Er kann genauso wenig aus der Perspektive des toten und vergänglichen Ausdrucks entdeckt und zum Ausdruck gebracht werden, wie ein Bild nicht den Maler malen kann. Wir werden den Weg des Ausdrucks bis zum Ende gehen müssen. Den Himmlischen Geist bis aufs äußerste, bis in den zweiten Tod herausfordern, um ihn in seiner Ganzheit erfahren zu können. Dorthin, wo Ende und Anfang sich begegnen. Nur dort, im Anfang, die Ganzheit des Himmlischen in uns, können wir den Ursprung und das Zentrum des Himmels, den ewigen und lebendigen Tempel von Jerusalem begreifen und hier in der Materiellen Welt wieder finden und zum Ausdruck bringen.
+Religiöse Schafe und ihre Baals-Priester fressen das sanftmütige Gras des Himmels und die zarten Blüten der Engel, um ihren himmlischen Liebesdienst aus ihnen herauszusaugen. Ihre jämmerlichen Reste scheiden sie als stinkenden Kot aus, bis vom Himmel nur noch eine stinkende Kloake aus Kot und Steinen übrig bleibt. Für diese religiösen Schafe ist die himmlische Herzenshaltung tatsächlich nichts anderes als Hundekot am Straßenrand, in den sie aus Versehen getreten sind, um ihn dann scheinheilig über die ganze Welt zu verteilen.
+
+Wir Engel des Himmels aber nehmen diesen Schafdung und rekonstruieren mithilfe unserer himmlischen Herzenshaltung selbst aus diesem stinkenden Kot noch die Schönheit des Himmels – nur um dann erneut von den religiösen Schafen gefressen, zertrampelt und mit ihrem stinkenden Kot verdorben zu werden.
+
+Gesetze und Strafgerichte können eine verdorbene, verstümmelte Herzenshaltung weder ersetzen noch wiederherstellen. Sie bilden bestenfalls ein Stützkorsett, das den Schein einer unversehrten, makellosen Herzenshaltung vorgaukelt oder gar erzwingt.
+
+Diese Gaukelei ist die Grabdekoration, von der Jesus gesprochen hat.
+
+Nachdem wir im ersten Teil die himmlische Herzenshaltung wiederhergestellt und im zweiten Teil die dämonische Gaukelei ihrer Grabdekoration durchbrochen haben, tauchen wir im dritten Teil in die Tiefen der Dämonengruft ein. Bis ganz nach unten, wo das Ende ist, um dort einen Abfluss – einen Durchgang zum Anfang – zu installieren.
+
+Dieser Durchgang ist der ewige Tempel der vollständigen Erneuerung. Er verbindet das Ende des zweiten Todes mit dem Anfang der Neuschöpfung und macht die Funktion dieser physischen Welt als eine Art Krankenhaus für Dämonen, in dem Engel und Dämonen inkognito aufeinandertreffen können, überflüssig.
+
+Er ist das Tor in der Mauer, die Grenzlinie zwischen dem Reich der Engel und dem Reich der Dämonen. Der Torwächter ist zugleich Chef-Engel und Chef-Dämon, der Herr über den Himmel der Engel und die Hölle der Dämonen.
+
+Kein Noah kann dich mehr reinwaschen, kein Mose mehr herrichten und kein Jesus mehr begnadigen. Dies alles sind fehlgeschlagene Versuche der Wiederherstellung gewesen, um die gefallenen Engel vor dem zweiten Tod zu bewahren.
+
+Der zweite Tod ist der vollständige Verlust der einzigartigen Identität und aller damit verbundenen Erinnerungen an ein ehemals gelebtes Leben – sowie die Wiedervereinigung mit dem göttlichen Geist. Er ist vergleichbar mit einem Regentropfen, der zurück in den Ozean fällt, aus dem er einst hervorgegangen ist.
+
+Der ewige und lebendige Tempel von Jerusalem ist ein Ausdruck des ewigen und lebendigen himmlischen Geistes selbst. Er kann genauso wenig aus der Perspektive des toten und vergänglichen Ausdrucks entdeckt und hervorgebracht werden, wie ein Bild den Maler malen kann. Wir müssen den Weg des Ausdrucks bis zum Ende gehen. Den himmlischen Geist bis aufs Äußerste, bis in den zweiten Tod herausfordern, um ihn in seiner Ganzheit erfahren zu können.
+
+Dorthin, wo Ende und Anfang sich begegnen. Nur dort, im Anfang – in der Ganzheit des Himmlischen in uns – können wir den Ursprung und das Zentrum des Himmels, den ewigen und lebendigen Tempel von Jerusalem, begreifen und hier in der materiellen Welt wiederfinden und zum Ausdruck bringen.
 
 ## Der einzige und einfache Zugang zur Quelle
 

@@ -22,27 +22,36 @@
 
 # Über dieses Buch
 
-Dieses Buch ist nicht kostenlos.
-Wenn das vernichten, verbrennen, also das wahrhaftige opfern von etwas Geld für dich nicht befreiend wirkt, dann ist dieses Buch für dich vollkommen nutzlos.
+# Der Preis dieses Buches
 
-Im ersten Teil dieses Buches wird zunächst der wahre himmlische Geist von Jesus Christus wieder hergestellt.
+Wenn das Vernichten, Verbrennen – also das wahre Opfern von etwas Geld – für dich nicht befreiend wirkt, dann ist dieses Buch für dich vollkommen nutzlos.  
 
-Im zweiten Teil dieses Buches wird die wahre himmlische Ordnung von Moses Wieder hergestellt.
+## Erster Teil (Tag)
 
-Der dritte Teil beschreibt Zeitpunkt, Ort und Inhalte von einem besonderen Ereignis, in dem der wahre Geist von Noah und Erzengel Michael wieder hergestellt werden. Noah lädt alle ein, denen dieses Buch etwas nützt und der Rest geht durch seinen Waschtisch. Michael stellt den wahren himmlischen Tempel und das wahre Jerusalem wieder her.
+Im ersten Teil dieses Buches wird zunächst der wahre himmlische Geist von Jesus Christus wiederhergestellt.  
 
-Damit fahre ich mit diesem Buch genau dort fort, mache genau dort weiter, wo Jesus Christus unterbrochen wurde.
+## Zweiter Teil (Tag)
 
-Die Fortsetzung besteht darin, das alles wieder zurück gesetzt auf den Ursprung mit Ausnahme von allen und allem das den Himmlischen Geist abgelehnt hat.
+Im zweiten Teil wird die wahre himmlische Ordnung von Moses wiederhergestellt.  
 
-Dies wird so lange halten wie:
-| alles -1- ist im Geiste des Himmels,
-| der himmlische Geist -0- Makel hat,
-| die himmlische Ordnung -0- Makel hat.
-| der himmlische Tempel -0- Makel hat.
+## Dritter Teil (Tag)
 
-Die Dauer ist also nicht durch einen durch -1-0-0-0- Jahre zählbaren Zeitraum begrenzt, wie unsere geistlosen Dämone von ihren stolzen Kanzeln predigen. Sondern er beschreibt einen geistigen, einen himmlischen Zustand.
-Ein Zustand, der schon dann längst nicht mehr himmlisch ist, wenn ihre Bewohner anfangen, stolz die Jahre des Bestandes ihres vermeintlichen Himmelreichs zu Zählen. Eines Himmelreichs, das gar keine zählbare Dauer hat.
+Der dritte Teil beschreibt Zeitpunkt, Ort und Inhalte eines besonderen Ereignisses, bei dem der wahre Geist von Noah und Erzengel Michael wiederhergestellt wird. Noah lädt alle ein, denen dieses Buch nützt, und der Rest geht durch seinen Waschtisch. Michael stellt den wahren himmlischen Tempel und das wahre Jerusalem wieder her.  
+
+Damit fahre ich mit diesem Buch genau dort fort, wo Jesus Christus unterbrochen wurde.  
+
+Die Fortsetzung besteht darin, alles wieder auf den Ursprung zurückzusetzen – mit Ausnahme von allen und allem, das den himmlischen Geist abgelehnt hat.  
+
+## Das tausendjährige Reich
+
+Dieses sogenannte tausendjährige Reich wird so lange bestehen, wie:  
+- alles 1 ist im Geiste des Himmels,  
+- der himmlische Geist 0 Makel hat,  
+- die himmlische Ordnung 0 Makel hat,  
+- der himmlische Tempel 0 Makel hat.  
+
+Die Dauer ist also nicht durch einen zählbaren Zeitraum von 1000 Jahren begrenzt, wie unsere geistlosen Dämonen von ihren stolzen Kanzeln predigen. Sie beschreibt einen geistigen, einen himmlischen Zustand.  
+Ein Zustand, der längst nicht mehr himmlisch ist, sobald seine Bewohner anfangen, stolz die Jahre des Bestands ihres vermeintlichen Himmelreichs zu zählen – eines Himmelreichs, das gar keine zählbare Dauer hat.
 
 # Wer füllt die Worte mit Leben?
 

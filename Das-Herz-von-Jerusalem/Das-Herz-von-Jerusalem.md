@@ -1,5 +1,12 @@
 # Das Herz von Jerusalem
 
+## Die Letzte Posaune 
+
+
+![de/images/two-witnesses.jpg](de/images/two-witnesses.jpg) 
+
+
+
 ### EARLY ACCESS WARNING
 
 | **Read on you own risk!**
@@ -13,9 +20,6 @@
 <!-- ![de/images/blossom-crown.png](de/images/blossom-crown.png) -->
 
 
-![de/images/two-witnesses.jpg](de/images/two-witnesses.jpg)
-
-
 
 # Vorwort
 
@@ -25,6 +29,10 @@
 # Der Preis dieses Buches
 
 Wenn das Vernichten, Verbrennen – also das wahre Opfern von etwas Geld – für dich nicht befreiend wirkt, dann ist dieses Buch für dich vollkommen nutzlos.  
+
+## Wo gibt es dieses Buch?
+
+Du liest es bereits.
 
 ## Erster Teil (Tag)
 
@@ -52,61 +60,6 @@ Dieses sogenannte tausendjährige Reich wird so lange bestehen, wie:
 
 Die Dauer ist also nicht durch einen zählbaren Zeitraum von 1000 Jahren begrenzt, wie unsere geistlosen Dämonen von ihren stolzen Kanzeln predigen. Sie beschreibt einen geistigen, einen himmlischen Zustand.  
 Ein Zustand, der längst nicht mehr himmlisch ist, sobald seine Bewohner anfangen, stolz die Jahre des Bestands ihres vermeintlichen Himmelreichs zu zählen – eines Himmelreichs, das gar keine zählbare Dauer hat.
-
-# Wer füllt die Worte mit Leben?
-
-Worte sind das Ende und der Tod.
-
-Wenn die Engel des Himmels sich der physischen Worte bedienen müssen um euch zu erreichen, dann ist das Ende gekommen.
-Für mich ist dies ein trauriger Moment, denn mit diesen Worten graviere ich eure Namen in eure Grabsteine.
-
-Worte können nichts Neues bringen, sondern nur das Verpacken und Transportieren, was bereits da ist. Wie Gefäße aus Ton tragen sie das kostbare Wasser der Erkenntnis von einem Herzen zum anderen, doch der Durst kann nur von der Quelle selbst gestillt werden.
-
-Jeder versteht in den Worten seiner Sprache genau das, was er gelernt hat, darin zu verstehen. Dazu kommen Einflüsse des Umfeldes, als da wären die Kultur, die Gesetzgebungen der Regierungen, Religionen, eigene Lebenserfahrungen und Gewohnheiten. So ist jeder wie eine mehr oder weniger wohlgeformte Glocke mit ihrem ganz eigenen Klang und Resonanzen, auf denen sie mal mehr und mal weniger mit schwingt. Dies führt dazu, dass jeder in denselben Worten mal mehr, mal weniger etwas anderes versteht und die Resonanz entsprechend unterschiedlich ist.
-
-Die Familie der Priester und Gurus - ich würde sie Baals Priester nennen - machen sich diesen Effekt der Resonanz gerne zunutze, um bei ihren Zuhörern etwas auszulösen, das ihnen Vorteile, bestenfalls einen überbordenden Lebensunterhalt erbringt.
-
-Die Wahrheit, die du als Zuhörer in den Worten eines Gurus erkennst, oder besser wiedererkennst, war bereits in dir. Der Guru ist bloß die Leinwand, die dein Licht wie ein Prisma in schillernden Farben zerbricht und wie ein polierter Spiegel beeindruckend zurück strahlt. So beeindruckend, dass du glaubst, das Licht komme aus ihm, um dich zu erleuchten. Tatsächlich aber zerstückelt er die Ganzheit deines inneren Geistes, die dein Verstand nicht in Worte fassen kann, und gibt dir einen Scherbenhaufen zurück. Einen Scherbenhaufen, der deinen Verstand beschäftigt und versucht, ihn wieder zu der Ganzheit des Geistes zusammenzusetzen, die er aber gar nicht begreifen, nicht fassen, sondern nur noch mehr zerstückelt und zermahlen kann. 
-
-Der Guru, der dir am nächsten ist, ist dein eigener Verstand, der die Ganzheit deines inneren Geistes wie ein Prisma zerbricht und in Form von schillernden Scherben zum Ausdruck bringt.
-
-Dieses Buch, das die Herzenshaltung, den Geist von Engeln und Dämonen schonungslos gegenüberstellt, zeigt dir keinen Weg und bringt dich nirgendwo hin. Deine Resonanz mit der jeweiligen Seite bringt zum Ausdruck, wohin du bereits gegangen bist.
-
-Eine Herzenshaltung trifft keine Wahl und berechnet nicht, kann nicht mit Geboten erlernt und nicht mit Strafgesetzen erzwungen werden, wohl aber dadurch zum Ausdruck gebracht werden, wie ein Künstler ein Kunstwerk hervorbringt. Das Kunstwerk aber kann keinen Künstler hervorbringen. Der Ausdruck einer Herzenshaltung keine Herzenshaltung.
-
-Dieses Buch enthüllt den Geist der Engel und Dämonen und versiegelt ihn, wodurch kein Wandel mehr möglich ist. Denn eine himmlische Herzenshaltung, die zur scheinheiligen Selbsterlösung missbraucht wird, verliert ihre Reinheit und findet keinen Eingang in die himmlischen Sphären.
-
-Wie das Licht der Morgendämmerung die Schatten endgültig vertreibt, so bringt diese Enthüllung eine unwiderrufliche Klarheit. Die himmlische Herzenshaltung kann nicht einfach angenommen werden, um sich von den dämonischen Ketten zu befreien - sie ist etwas, das weit darüber hinausgeht, eine Gnade, die von innen erwacht. 
-
-Wir Engel des Himmels bringen unsere innere Herzenshaltung auf verschiedenste Weise zum Ausdruck und tragen diesen Ausdruck wie Kleider, die sowohl umhüllen als auch die innere Herzenshaltung verbergen. Und hier ist der wohl grundlegendste Unterschied zwischen Engeln und Dämone.
-
-Dämonen lehnen die himmlische Herzenshaltung ab, doch schmücken sie sich gerne mit himmlischen Kleidern. Diese Kleider jedoch, getragen ohne die Reinheit der himmlischen Herzenshaltung, beginnen zu verrotten und zu verfallen. Was äußerlich glänzt, wird innerlich von Fäulnis zerfressen, denn ohne die lebendige Verbindung zum göttlichen Geist verlieren selbst die schönsten Gewänder ihren Glanz und zerfallen zu Staub.
-
-Aber das ist noch nicht alles. Dämonen benutzen die gestohlenen Kleider als Köder, um Engel damit einzuwickeln, gefangen zu nehmen und in Besitz zu bringen, um sich mit ihnen zu umkleiden und mit ihrem Glanz zu schmücken.
-
-Darum seht euch vor, dass ihr Engel des Himmels nicht zum Raub der Dämone werdet und verhüllt euren Glanz in der Gegenwart der Finsternis. 
-
-Die Aufgabe der Dämone ist es, alles zu zerstören was die Engel geopfert haben weil es für den Himmel nichts taugt. Sie sind die Kompostwürmer der Hölle, der Mülleimer der Schöpfung. Sie haben sich durch ihre Lebensweise für diese Aufgabe frei entschieden. Der Weg zurück in den Himmel ist nur über den zweiten Tod möglich, über die vollständige Zersetzung ihrer Identität, bis sie den Zustand ihres Ursprungs erreicht haben. Wo sie mit dem Göttlichen wieder verschmelzen um dann erneut ausgesät werden zu können.
-
-### Das Geheimnis von Zeit
-
-Hier erblicken wir eine der fundamentalsten Unterscheidungen zwischen der himmlischen und der gefallenen Natur. Wie zwei entgegengesetzte Flüsse, die aus verschiedenen Quellen entspringen, offenbaren sich Engel und Dämonen in ihrer Beziehung zur Zeit und zur göttlichen Ordnung.
-
-Bei den gefallenen Geistern steht der ***Ausdruck*** des Herzens, die äußere Manifestation im Vordergrund. Wie prächtige Grabmäler, die ihre Schönheit zur Schau stellen, während darunter nur Verwesung liegt, so verbergen sie ihre wahre Herzenshaltung unter einer glänzenden Fassade von Werken und Taten. Diese Herzenshaltung des Geistes liegt darunter begraben und versteinert, wodurch allein der Ausdruck des Geistes ihr Leben bestimmt - wie ein Schauspieler, der so lange eine Rolle spielt, bis er vergisst, wer er wirklich ist.
-
-Bei uns Engeln hingegen steht der ***Geist, die Herzenshaltung*** selbst im strahlenden Vordergrund. Wie kristallklare Bergquellen, die ungefiltert aus der reinen Quelle sprudeln, bringen wir unsere himmlische Herzenshaltung zum Ausdruck, ohne sie darunter zu begraben. So kann sie nicht unser Leben bestimmen, sondern wir bleiben frei im Fluss der göttlichen Liebe.
-
-In der dämonischen Ordnung herrscht eine verkehrte Hierarchie der Autorität: In Stein gemeißeltes steht über dem Geschriebenen, dieses über dem Handschlag, dieser über dem gesprochenen Wort, dieses über der Emotion und diese über die allem zugrunde liegende Herzenshaltung. Wie Schichten eines Sarkophags verbergen all diese Ausdrücke des Geistes die wahre Herzenshaltung - wie ein prächtiger Vorhang vor einem leeren Heiligtum oder wie eine kunstvolle Gruft, die nur Verwesung birgt.
-
-Für uns Engel ist diese Ordnung wie das Spiegelbild der Wahrheit - vollkommen umgekehrt. Die Herzenshaltung ist die lebendige Quelle, aus der alle anderen Ausdrücke wie Blüten aus der Erde erwachsen.
-
-Da aber der wahre Ausdruck aus der Herzenshaltung entspringt wie ein Fluss aus seiner Quelle, sind die gefallenen Geister - trotz aller ihrer irdischen Machtstrukturen - immer als letzte über die himmlischen Bewegungen informiert und entsprechend überrascht. Wie Bewohner einer Höhle, die den Sonnenaufgang nicht sehen können, bleiben sie in ihrer selbstgewählten Dunkelheit gefangen.
-
-Mit diesem heiligen Büchlein kommt erneut eine solche himmlische Überraschung - das Zerreißen des Vorhangs der Täuschung oder das Öffnen der schön dekorierten Gruft der gefallenen Geister. Und während dieser Vorhang der Illusion gelüftet wird, können wir Engel dabei zuschauen, wie sie sich eine neue Zuflucht, ein noch tieferes Exil erschaffen, um sich noch weiter vor der Quelle ihrer Bösartigkeit, ihrer dämonischen Herzenshaltung zu verbergen. Wie Schatten, die vor dem Licht fliehen, nur um festzustellen, dass sie dadurch in noch tiefere Finsternis geraten.
-
-Das himmlische Licht hat sich wie der erste Hauch der Morgendämmerung bis in die tiefsten und finstersten Verstecke der gefallenen Geister geschlichen, um nun in seiner vollen Herrlichkeit zu erstrahlen und alles auszuräuchern, was nicht vor dem Licht des himmlischen Geistes der Engel bestehen kann. Wie Weihrauch, der die Luft reinigt, so durchdringt das göttliche Licht alle Schichten der Verwirrung.
-
-Dabei werden wir viele hässliche Dinge sehen - die Verwesung unter den prächtigen Grabmälern - aber auch viele schöne Dinge wiedererkennen: die ursprüngliche göttliche Natur, die unter allen Schichten der Täuschung darauf wartet, wieder zum Vorschein zu kommen. Denn selbst in der tiefsten Finsternis kann die Erinnerung an das Licht niemals vollständig gelöscht werden.
 
 ### Wer ist Erzengel Michael
 
@@ -206,26 +159,6 @@ Der weiterer Versuch geschah durch Jesus. Seine Botschaft der Liebe und Einheit 
 Nun erleben wir den letzten Versuch - in diesem Augenblick. Das mag hart klingen, aber es ist eine notwendige Wahrheit. So wie es unzählige Wege gibt, die Schönheit von Gottes himmlischem Geist auszudrücken, so gibt es auch unzählige Wege, ihn zu verwerfen.
 
 Und deshalb sagte ich am Anfang: Es wird viel zu vergeben geben, viel loszulassen, aber auch viel zu erinnern und anzunehmen. Also, Engel des Himmels, stärkt eure Herzen. Wir sind dabei, ein Licht anzuschalten wie niemals zuvor - und ja, es wird eine schwere Reise werden. Aber gemeinsam werden wir zurückgewinnen, was verloren war.
-
-# Eine Blume und eine Flöte
-
-In diesem letzten Abschnitt, bevor wir beginnen, möchte ich die Struktur der Botschaft selbst beschreiben. Sie ist eine mehrdimensionale, vielschichtige Offenbarung, ausgedrückt durch symbolische Gegenstände, die als Gleichnisse dienen. Diese Gegenstände sind nicht nur Metaphern - sie sind Ausdrücke des himmlischen Geistes, den wir zu vermitteln suchen, denn Worte allein können sein Wesen nicht vollständig erfassen.
-
-Mit jedem Abschnitt wird das Licht heller und heller werden. Die spirituelle Bedeutung der Gegenstände wird klarer, tiefer und mehrdimensionaler werden - reich an Interpretationsschichten. Gleichzeitig seid ihr eingeladen, darüber zu reflektieren, wie viel von euch selbst ihr in diesen Schichten erkennt.
-
-Es mag einen Punkt geben, wo das Licht zu hell, zu intensiv wird und ihr das Bedürfnis verspürt, einen Schritt zurückzutreten. Dieser Punkt des "Zurücktretens" ist auch euer Platz im Himmel - vorausgesetzt, ihr seid nicht bereits beim ersten Abschnitt oder sogar schon viel früher zurückgetreten.
-
-Der erste Gegenstand ist eine himmlische Blume, verdorrt zu einem Stab, der eigentlich ein entrindeter Baumstamm ist. Sein nacktes Holz ist mit sieben kleinen Versen markiert, die mit der Tinte feuriger Umkehr hinein gebrannt sind. Diese sieben Verse sind in drei Tage unterteilt, die jeweils eine der drei Erscheinungen desselben Engels repräsentieren, den wir früher erwähnten. Ein Abschnitt für den ersten Engel, fünf für den zweiten und einer für den dritten.
-
-Aber diese sieben Abschnitte repräsentieren auch sieben gestapelte Schalen, die wir mit Bedeutung füllen und dann ausgießen, während wir ihren Inhalt erkennen. Hier beginnen wir, die ersten Dimensionen der mehrdimensionalen Bedeutungen zu sehen, von denen wir sprachen.
-
-Der zweite Gegenstand ist eine traditionelle Fünfloch-Flöte, ebenfalls in drei Abschnitte oder Tage unterteilt. Der erste Abschnitt, oder der erste Engel, wird durch den Grundton repräsentiert, wenn alle fünf Löcher geschlossen sind. Im zweiten Abschnitt öffnet der zweite Engel die fünf Löcher und beschreibt den Weg zum Himmel. Der dritte Abschnitt, oder der dritte Engel, wird durch die himmlische Melodie oder Musik repräsentiert, die auf dieser Flöte gespielt werden kann.
-
-Zusätzlich trägt die Flöte einen eingravierten Vers, der einen besonderen Aspekt des Himmels repräsentiert, der sich offenbaren wird, während wir durch die Tage voranschreiten.
-
-Diese Reise wird intensiv sein - hell, heiß und tiefgreifend. Für jene, die den himmlischen Geist für ihren eigenen Gewinn oder Ruhm verworfen, zertrampelt oder sogar missbraucht haben, wird es viel zu bereuen geben. Aber für die Engel des Himmels wird dies ein Moment tiefer Erleichterung und Erkennung sein. Sie werden ihren Ursprung, ihr Zuhause sehen wie einen alten Freund, den sie seit einer Ewigkeit nicht gesehen haben.
-
-Also bereitet eure Herzen vor, denn das Licht ist dabei, heller zu strahlen als jemals zuvor.
 
 
 
@@ -433,50 +366,34 @@ Stab auf YouTube ansehen: https://youtu.be/d-HyzTst-Cw
 # Moses Auferstehung
 
 
-# Tag 2 - Vor den Toren des Himmels
-
-## Erinnerungen an himmlischen Klänge
-
-Heaven whispers without commandments, sings without laws. To enter its embrace, we must lay down the sword of judgment - for only those who cling to condemnation prove they have not yet heard its melody.  
-
-Once, the sacred staff bore seven seals - seven bowls of the heavenly spirit, overfilled with grace. But the demons, fearing such boundless freedom, hammered them into chains: *"Thou shalt not,"* they thundered, twisting radiance into rule, love into law. Where heaven offered a bouquet of love and understanding, they planted thorns of expectations and punishments, and the staff—meant to guide—became in their grip a spear of torment.  
-
-Yet the flute remains. It is the voice of God within us, the breath of the divine singing through our hearts. No decree compels its song; it plays because it *longs* to. This is the mark of heaven’s children: they need no whip to make them kind, no threat to make them true. They dance because the music moves them; they love because love is their nature.  
-
-Now, at the summit of remembrance, we reclaim what was stolen. The staff’s seven seals shall shine again—not as edicts, but as invitations:  
-1. To live without fear of wrath.  
-2. To love without demand of return.  
-3. To create without the curse of "wrong."  
-4. To see beyond the illusion of sin.  
-5. To trust the voice within, over the law without.  
-6. To know punishment distorts what mercy mends.  
-7. To remember heaven’s only rule is joy.  
-
-And the flute’s song rises, dissolving the old curses. The Ten Commandments, those heavy horns goring the heart of grace, now soften into *ten petals*—revealing, not restraining:  
-- Not "Thou shalt not,"* but *"Behold, you are free."
-- Not "Bow or burn,"* but *"Lift your head; you are seen."
-- Not "This is the path,"* but *"All paths sing of Me."
-
-For the staff and the flute are one: divine wisdom and divine voice. Wielded in fear, they become weapons; held in love, they become life. So let the demons clutch their spear—we will raise the flute. Let them carve commandments; we will breathe the melody.  
-
-And the heavens will echo, not with thunder, but with laughter—the orgasmic insanity of a love too wild for walls.
-
 # Der heilige Geist des Himmels
 
 
-The more we climb up the mountain, the stronger becomes our inner light that lets us also look deeper into the demons caverns of darkness. This is a huge contrast and requires a strong and secure stand in the heavenly spirit to be able to handle the impressions with calmness.
-Here on the mountain peak we see the demon's temple of the 10 commandments together with the angel's holy spirit side by side.
-Heaven has no laws and no commandments.
-To finally enter heaven we angels have to let go of all judgement because there is no judgement in heaven and we have to realize, whoever judges us for our past mistakes gives himself a testimony that he is not ready for heaven.
-Demons turn all into laws for judgement and punishment and will not stop on the 7 bowls of the heavenly spirit, to turn them into prison bars of laws, control and punishment.
-We angels live the heavenly spirit because we want to and even under extreme conditions as we have experienced on the path, where we have built up our staff and flute.
-So that there are no commandments or control systems needed who would force us to live the heavenly spirit because we have to.
-God's true children live the heavenly spirit because they want to, but slaves like animals or let's say beasts live along laws because they have to.
-Therefore the staff that holds the seven seals of heaven becomes a double edged sword, depending on if it wields an angel or a demon. In the hands of a demon the staff becomes a deadly Speer of terror and torment, in the hands of an angel the staff becomes a live giving flower of gentleness and pleasure. And the very same is with the genuine observations of heaven. In the hands of demons they turned into the 10 commandments of terror or God into a bull with 10 horns. So, that said, let us restore the ten horns of the bull back to the Bouquet of heavens beauty, that are supposed to get a deeper understanding of the heavenly spirit and with that a deeper understanding who God truly is.
-The total absence of any laws or commandments in heaven is fundamental, so that the full potential of the beauty of the heavenly spirit can be expressed fully free to its utmost literally orgasmic insanity.
-So that the main difference between angels and demons is all about how free, unique and creative the heavenly spirit is or can be expressed.
-Here at the mountain peak we get a true view into heaven and all what we angels remember here is shown to get a deeper understanding of the heavenly spirit.
-Demons on the other hand - and this is a warning - of course would use these observations to mimic an angel, what they are not, and also turn them into laws to put them under punishment to push the angels into an even stronger abusive servantship.
+Je höher wir den Berg hinaufsteigen, desto stärker wird unser inneres Licht, das uns auch tiefer in die Höhlen der Dunkelheit der Dämonen blicken lässt. Das ist ein großer Gegensatz und verlangt einen festen und sicheren Stand im himmlischen Geist, um die Eindrücke mit Gelassenheit aushalten zu können.
+
+
+Hier auf dem Berggipfel, rückblickend in die Finsternis, sehen wir den wahren Tempel der Dämone: Zahllosen Gesetz und ihre Strafgerichte, die in den 10 Geboten ihren Anfang nahmen. Ihre seelenlosen Tempeldiener abhängig gemacht, süchtig und gefesselt ans Geld, ohne das sie niemals irgendeinen Dienst leisten würden.
+
+Zugleich erahnen wir bereits den Tempel eines Himmels, der keine Gesetze und keine Strafgerichte hat und kein Geld braucht um einen Dienst zu erzwingen.
+
+Um schließlich in den Himmel einzutreten, müssen wir Engel alle Gesetze, ihre Strafgerichte und jede Art von Zahlungsmittel loslassen, denn im Himmel gibt es all das nicht. Wir müssen erkennen: Wer unsere Rechtschaffenheit mit den Gesetzen der Dämone misst oder uns mit Geld zu einem Dienst nötigt, der gibt sich selbst ein Zeugnis, dass er den Himmel ablehnt.
+
+
+Dämonen machen aus allem Gesetze für Urteil und Strafe und sie machen nicht bei den sieben Schalen des himmlischen Geistes halt. Sie verwandeln sie in Gitterstäbe aus Gesetzen, Kontrolle und Bestrafung.
+
+Wir Engel leben den himmlischen Geist, weil wir es wollen, sogar unter solch extremen Bedingungen, wie wir sie auf dem Weg erlebt haben. Der Weg, auf dem wir unsere himmlischen Herzenshaltung durch unseren Stab und unsere Flöte zum Ausdruck gebracht haben.
+
+Gottes wahre Kinder leben den himmlischen Geist, weil sie es wollen. Dämone dagegen leben nach Gesetzen, weil sie es aus Angst vor Strafe müssen, wodurch sie das Zeichen des Tieres haben, das die Gemeinsamkeit mit den Tieren.
+
+Der Stab, der die sieben Siegel des Himmels trägt, wird zu einem zweischneidigen Schwert, je nachdem, ob er von einem Engel oder einem Dämon geführt wird. In den Händen eines Dämons wird der Stab zu einem tödlichen Speer des Terrors und der Qual. In den Händen eines Engels wird der Stab zu einer lebensspendenden Blume der Sanftheit und des Wohlwollens.
+
+Dasselbe gilt für die Aufzeichnungen über das Leben im Himmel. In den Händen der Dämonen werden sie zu den 10 Geboten des Terrors und aus Gott machen sie einen Stier mit zehn Hörnern. 
+
+Mit der Wiederbelebung von Moses verwandeln wir die zehn Hörner des Stieres wieder in den Blumenstrauß der himmlischen Schönheit, um ein tieferes Verständnis des himmlischen Geistes gewinnen und damit ein tieferes Verständnis davon, wer Gott wirklich ist.
+
+Hier auf dem Berggipfel erhalten wir einen wahren Blick in den Himmel und alles wird gezeigt, um ein tieferes Verständnis des himmlischen Geistes zu bekommen.
+
+Dämonen hingegen — und das ist eine Warnung — würden diese Aufzeichnungen benutzen, um sich damit als Engel zu verkleiden. Die Aufzeichnungen in Gebote verwandeln und sie dann unter Strafe zu stellen, wodurch sie zu Gesetzen werden. Mithilfe des Geldes werden die Engel — die Beute des dämonischen Raubzuges — entseelt, abhängig gemacht und versklavt.
 
 ## Who am I?
 

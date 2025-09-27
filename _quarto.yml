@@ -11,14 +11,11 @@ book:
       - de/book-about-1.qmd
       - de/book-about-2.qmd
       - de/book-about-3.qmd
-#      - de/book-about-4.qmd
-#      - de/book-about-5.qmd
     - part: "Engel, erinnert euch!"
       chapters:
       - de/book-preface-1.qmd
       - de/book-preface-2.qmd
       - de/book-preface-3.qmd
-#      - de/book-preface-4.qmd
     - part: "Jesus Auferstehung"
       chapters:
       - de/chapter-1-preface-1.qmd
